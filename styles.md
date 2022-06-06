@@ -47,3 +47,7 @@ Self Portrait
 Selfie
 Panorama
 Children's Coloring Book
+Woodcut
+Steel sculpture
+Line drawing
+Chiseled marble
