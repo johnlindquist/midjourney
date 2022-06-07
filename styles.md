@@ -51,3 +51,6 @@ Woodcut
 Steel sculpture
 Line drawing
 Chiseled marble
+Vector Logo
+Bird's Eye View
+Engineering Drawing
