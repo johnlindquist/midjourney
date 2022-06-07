@@ -54,3 +54,5 @@ Chiseled marble
 Vector Logo
 Bird's Eye View
 Engineering Drawing
+Anime Key Visual
+Official Media
