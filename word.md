@@ -1,1 +1,1 @@
-Epic Mecha Kraken
+Trichromatic
