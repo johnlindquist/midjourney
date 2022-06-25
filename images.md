@@ -4,5 +4,4 @@ https://media.discordapp.net/attachments/976566903608856576/988611658337378354/I
 https://cdn.dribbble.com/users/965441/screenshots/16250331/media/008f2ec9b01f0b3556622bd82a44abe6.jpg?compress=1&resize=400x300
 https://s.mj.run/vJT3-BB3wzg
 https://s.mj.run/fHGeprD2i9s
-https://static.vecteezy.com/system/resources/thumbnails/001/910/477/small/flat-colorful-space-with-rocket-background-free-vector.jpg
 https://images4.alphacoders.com/715/thumb-1920-715075.png
