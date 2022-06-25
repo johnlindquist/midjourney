@@ -5,3 +5,4 @@ https://cdn.dribbble.com/users/965441/screenshots/16250331/media/008f2ec9b01f0b3
 https://s.mj.run/vJT3-BB3wzg
 https://s.mj.run/fHGeprD2i9s
 https://images4.alphacoders.com/715/thumb-1920-715075.png
+https://cdn.discordapp.com/attachments/957308102238167120/990337711208554536/patapon-2-remastered-ps4-patapon-2-ps4-800x400.jpeg
