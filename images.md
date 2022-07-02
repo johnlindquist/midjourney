@@ -1,2 +1,5 @@
 https://cdn.discordapp.com/attachments/957308102238167120/991009296311549962/file.jpeg
 https://cdn.discordapp.com/attachments/957308102238167120/991010179082489857/file.jpeg
+https://cdn.discordapp.com/attachments/976566903608856576/992563667000373318/5fb4272c-2053-48ca-946c-eb8fed88dea0_A-Merk_a_trippy_alien_nightclub_in_the_style_of_80s_anime_mythical_impossible_cyborg_creatures_highly_detai.png
+https://cdn.discordapp.com/attachments/976566903608856576/992563667314937976/2f21a076-4fc5-48cc-8c0e-088254516802_A-Merk_80s_anime_liquid_gemstones_pouring_melting_beautiful_trippy.png
+https://cdn.discordapp.com/attachments/976566903608856576/992563667826651136/9981c69e-3b4f-40f4-a5d9-493fe8fd17cd_A-Merk_a_trippy_alien_jungle_from_an_80s_anime_in_the_style_of_80s_anime_high_level_of_detail_and_complexit.png
