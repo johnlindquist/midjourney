@@ -2,3 +2,12 @@ https://cdn.discordapp.com/attachments/957308102238167120/991009296311549962/fil
 https://cdn.discordapp.com/attachments/957308102238167120/991010179082489857/file.jpeg
 https://cdn.discordapp.com/attachments/976566903608856576/992563667826651136/9981c69e-3b4f-40f4-a5d9-493fe8fd17cd_A-Merk_a_trippy_alien_jungle_from_an_80s_anime_in_the_style_of_80s_anime_high_level_of_detail_and_complexit.png
 https://cdn.discordapp.com/attachments/957308102238167120/992792555831951411/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237506344198267/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237454301286522/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237398366027816/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237363532337242/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237363532337242/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237342829268992/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237305567059968/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237273191235624/unknown.png
+https://cdn.discordapp.com/attachments/957308102238167120/994237184624312470/unknown.png
