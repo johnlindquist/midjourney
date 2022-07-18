@@ -1,4 +1,4 @@
-https://pbs.twimg.com/media/FX11WYAVUAEhI-K?format=jpg&name=medium
-https://pbs.twimg.com/media/FX11W5AVsAAE3eX?format=jpg&name=medium
-https://pbs.twimg.com/media/FX11XhrVUAE1OVh?format=jpg&name=medium
-https://pbs.twimg.com/media/FX11YHHUcAEUH8M?format=jpg&name=medium
+https://media.discordapp.net/attachments/957308102238167120/998439091047776396/unknown.png?width=833&height=833
+https://media.discordapp.net/attachments/957308102238167120/998439119158005790/unknown.png?width=833&height=833
+https://media.discordapp.net/attachments/957308102238167120/998439144017645588/unknown.png?width=833&height=833
+https://media.discordapp.net/attachments/957308102238167120/998439178524184657/unknown.png?width=833&height=833
