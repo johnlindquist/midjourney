@@ -1,69 +1,52 @@
 a hispanic teenage boy wearing square glasses ++ male, young adult, jawline, cute, handsome ++ portrait, inked manga render by Krenz Cushart, Tom Bagshaw, Studio Ghibli, Artgerm, Charlie Bowater, Ilya Kuvshinov, WLOP, and CloverWorks
 A real photographic landscape painting with incomparable reality,Super wide,Ominous sky,Sailing boat,Wooden boat,Lotus,Huge waves,Starry night,Harry potter,Volumetric lighting,Clearing,Realistic,James gurney,artstation
 a bronze-scaled dragonborn with numerous hornlike protrusions, dnd, fantasy, concept art, symmetrical face, reptilian features, beautiful bronze textured scales, glowing eyes, portrait, character portrait, rpg, Damien Guimoneau, Marcus Whinney, Keita Okada, Antonio J. Manzanedo, cinematic vision, ultra high detail, trending on artstation, 8k, high quality image
-, occult, character design, symmetrical fullbody rendering, yoji shinkawa, craig mullins, Emil Melmoth, artstation, highly detailed, 4k post-processing, 8k resolution , 70mm lens, dominant pose, what the hell are you looking at, outdoors lighting, nature background, contempt, hate, vivid emotion, symmetric circular iris, subtle glitter makeup, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face +photorealistic pencil sketch + text, male, long neck, textured eyes, oblong iris, oval iris , ptosis, anisocoria, asymmetric pupils , realistic , atmosphere and fog , warm lighting , atmospheric perspective , octane-render, photo-real, CryEngine, V-ray, 8k, micro details , blue hues, mysterious noir alley between two 1920s brownstone buildings, magical garden, rose brambles, stone path, cloudy night sky, natural volumetric lighting, low angle looking upwards, by norman rockwell, detailed 8k render, 8k postprocessing , cult of Lilith + , add to character a many beautiful female face, blue eyes full of tears, black raven hair, cape, long coat, dark background + dof
 #futuristic beach architecture in inflatable material and steel cantillever from a cliff overlooking the ocean
 fern canyon gorge in oregon, stone stairway, overgrown lush plants, atmospheric, cinematic, by studio ghibli
 paper quilled beautiful woman in japanese maple leaf dress, in the style of JUDITH + ROLFE, face by Artgerm, forest background, hyperrealism, elegant, beautiful,
 anthropomorphic cute bunny knight character, holding a sword
 our sun from space, earth foreground
-faceless man in a yellow suit
 macro photo fo shiny metallic dragon scales
 neon glowing sulphuric 3d realistic crystals in a cracked geode 16k
-magical fairy glen
 retro dark vintage sci-fi : : dark 2D matte gouache illustration : : dark chamber of repressed memories
 Pikachu in Fear and Loathing in Las Vegas
-WALK AMONG THE CHERRY BLOSSOMS
 gorgeous wolf statue with gold filigree
 gorgeous woman with colorful tattoos, bra and shorts streetwear, city street, swirling black smoke, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
 gorgeous woman with colorful tattoos, bra and shorts streetwear, city street, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
-portrait, realistic, vampire
 paper epic leopard tiger lion, artstation
 A hotel lobby, elegant, art nouveau, pastel colors, sinuous, rhythmical, dreamlike, symmetrical
-World with cordiceps mutation
 &lt; Beautiful goddess with symmetrical face blowing smoke
 ROUTE 66, a Canyon with rocky stream, motorcycles, vintage cars, by Moebius and Alphonse Mucha
-the muscular devil of revelry, heavy metal guitarist, rock concert, large demonic horns, strong, bold, symetrical, neon, baroque, rococco, tarot, marc simonetti, paul pope, peter mohrbacher, brom, insanely detailed, intricate ink illustration, red orange and black ink
 digital data stored in DNA + microchips + virus + glitch + data moshing 4k
-galacticalmancer
 i am girl in rain. My behind black cat and white cat and white dog and yeallow turle and pink bunny
 a steampunk machine recording dreams while people are sleeping, octane render, 8k, realistic, atmospheric,
 beautiful portrait painting of an anime girl, cute, pink hair, symmetrical face, symmetrical eyes, two identical symmetrical eyes, portrait, beautiful girl, artstation, trending on artstation, gorgeous, smooth skin, cutie, long hair, fantasy style, pastel colors , forest background, FHD,
 a floating castle tethered to the earth below by shimmering golden chains
 trail cam footage of a giant persian cat napping, outdoors lighting, vivid emotion, symmetric circular iris, detailed moisture, detailed droplets, detailed fabric, detailed intricate hair strands, DSLR, ray tracing reflections, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production
 vintage computer market place, lots of people, market stalls, Nausicaa Ghibli, Laurie Greasley
-mysterious cloaked skull, occult, horror, in the style of Mike Mignola and Duncan Fegredo by Botero, occult, horror, in the style of Mike Mignola and Duncan Fegredo
 Cosmic Gateway, Exquisit architecture, Portal, Atmosphere, Spectacular details, Dramatic lighting, Epic composition, Wide angle, Low angle, by Miyazaki, Nausicaa Ghibli, Breath of The Wild
 A young anthro arctic fox wearing a suit and tie, handsome, fox ears
 full page antique lithograph of varying moss and flower covered knome hobbit giant mushroom house by Jean-Baptiste Monge, post processing, painterly, book illustration watercolor granular splatter dripping paper texture
-pixel art mona lisa, painterly
 pale male elven mesmer becoming swarm of illusionary butterflies in the style of gw2 loading screen artwork
 beautiful realistic robot battle nun
-WE ARE THE FOUNDATION
-dusty rainbow
 pyromagic fuchsiaorange fluid in a dark style by Richard Anderson, Kekai kotaki, Jackson Pollock and craig Mullins
 idyllic forest portal, by studio ghibli
 the eye in the center of the sun, concentric rings around the sun, center frame, light shining from the sun into the void, strong, bold, symetrical, neon, baroque, rococco, tarot, marc simonetti, paul pope, peter mohrbacher, brom, insanely detailed, intricate ink illustration, yellow white purple and black ink
 dhaueifhruis, dark negative space, data mosh, glitch, 4k
 brutalist la corbusier skyscraper made of wood and glass, lush green terraces and green living walls with cascading waterfalls, streetlevel perspective looking up, 8k, ultra high detail
-dead city burning sun demon
 Yi people with wide square hat, traditional, black hat, silk, shaman, torch, fire, ancient festival, harper's bazaar, vogue, magazine, close-up, concept art, ornate, luxury, elite, elegant, trending on artstation, by ruan jia, by Kenneth Willardt, by ross tran, by WLOP, by Andrei Riabovitchev, 4k render,
-anime boy and his dog
 a complex and sophisticated train, zaha hadid and transformers robots, futuristic and robotic, concept art train, locomovtive, engine, large and full of details with lights and mechanisms, concept art robotics style and in the predator and star wars style, very detailed industrial, in an atmosphere with a futuristic town, landscape, with a large planet in the background, concept art, tridimensional, CG Society, artstation, scorn
 wuxia heroine wearing red, full body
 retro dark vintage sci-fi : : 2D matte gouache book cover illustration : : deep space macabre sci-fi world
 a beautifully carved marble statue of a jellyfish, dark negative spaces, data mosh, glitch, 4k
 retro dark vintage sci-fi : : dark 2D matte gouache illustration : : dark supreme robotic elder god of artificial intelligence
-divine plantlife energy
 &lt; mystical shop in victorian city
-life after death
 3d render of abrain translucent intangible space, traversed by electric current, octane render
 Magic potion green fluid in a bottle in a dark style by Richard Anderson, Kekai kotaki, Jackson Pollock and craig Mullins
 mean beautiful girl with wavy dark blue black hair stares you down while crying molten silver, shallow depth of field desert background, contempt, vivid emotion, hate, celestial nose type, extremely defined philtrum, high cheekbones, slim jaw, big eyes, full glossy lips, lipgloss, low angle medium shot, detailed moisture, detailed droplets, detailed intricate hair strands, nose sheen, DSLR, ray tracing reflections, symmetrical face and body, cgsociety, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
 ink dropped in water by ivan laliashvili, peter mohrbacher. a moss and flower covered knome hobbit giant mushroom house by Jean-Baptiste Monge, post processing, painterly, book illustration watercolor granular splatter dripping paper texture rococo details, post processing, painterly, book illustration watercolor granular splatter dripping paper texture, ink outlines, painterly
 anime boy with dark-red hair in the moonlight
 psychoglitchportraitcyberterror
-penguin in the snow next to a gate to hell
 combat engineer, killzone, battlefield 3, violence and brutality, pixiv, studio trigger, studio ghibli, portrait, rule of thirds, intricate complexity in the style of Artgerm and Ilya Kuvshinov
 beautiful planet the journey darren arnofsky Kent williams
 manga, anime, boy with dark-red hair, summer
@@ -81,18 +64,14 @@ radioactive blooming helix upward spiral dna twisted, vibrant backdrop, detailed
 superhero owl | comic book cover | illustration | david finch art style
 trail cam footage of your drunk uncle eating a banana,
 Dana Scully in Ninja Scroll (Jūbē Ninpūchō) 1993, 4k screen capture
-what do the dead dream of?
-turrican on Amiga
 Game "Hollow Knight" in style the game "Hyper Light Drifter"
 fantasy white hair and dark skin girl, portrait, concept art, Samuel You style
 zoom shot, clean, clarity, animation art, studio ghibli style, brick roads and Brooklyn bridge in Brooklyn
-stunningly beautiful
 oil painting of The bank - the monster has to have profits all the time. It can't wait. It'll die. No, taxes go on. When the monster stops growing, it dies. It can't stay one size
 beautiful portrait painting of an anime girl | cute | light blonde hair | symmetrical face | symmetrical eyes | two identical symmetrical eyes | portrait | beautiful girl | artstation | trending on artstation | gorgeous | smooth skin | cutie | long hair | fantasy style | pastel colors | forest background | FHD |
 junglepunk landscape oil painting
 divine entity, epic, psychedelics color, multi color, octane render, magic aura, angelic,
 Anime of Horrific cosmic abyssal formless creature wielding a powerful planet destroying weapon to pierce the heavens full body portrait , 8k, anime aesthetic, cinematic, dramatic, ominous, symmetrical
-THE SANDS OF TIME
 a 35mm photograph of rose quartz from steven universe, portrait photography, 85mm, iso 400, focus mode, detailed portrait, gigantic pink ringlets, huge pink hair, chubby, white dress, gorgeous, kind features, beautiful woman, flattering photo, daylight--quality 3--ar 4:5
 retro dark vintage sci-fi : : dark 2D matte gouache illustration : : dark supreme royal princess of the droids
 hyperreaslistic Azathoth awakening as the universe collapses
@@ -103,20 +82,16 @@ alien spaceship, entity sucked into the light, ascending, holographic, heavenly
 retro dark vintage sci-fi : : dark 2D matte gouache illustration : : dark beautifully ornate droid princess of cosmic harmony
 Astronaught Biologist, Heavy suit, Armour, Gas mask design, Wires and Pipes, Realistic
 quaint leaf house village floating on a glowing blue lagoon
-tron high council
 intricate tessellating gold paper with detailed topaz line work transforming into a dense apartment building made of thick cloth, dark color palette, atmospheric perspective, style of masamune shirow, style of brian sum, style of satoshi kon, style of peter mohrbacher
 young shaman old man, dark green skin, smiling, cute, character portrait, clean face
-I was the Apex Apex Legend
 So I've been asking why, I was born against.
 photograph of a beautiful anime girl wearing a hatsune miku cosplay outfit, forest background, vivid emotion, 70mm lens, celestial nose type, extremely defined philtrum, high cheekbones, slim jaw, big eyes, full glossy lips, lipgloss, low angle medium shot, detailed moisture, detailed droplets, detailed intricate hair strands, nose sheen, DSLR, ray tracing reflections, symmetrical face and body, cgsociety, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
 a perfect male human, portrait, 4k, realistic
 paper quilled beautiful woman in green moth wing dress, in the style of JUDITH + ROLFE, face by Artgerm, night forest background, hyperrealism, elegant, beautiful,
 quaint glass house village in the stars, sony picture Animation
-atlantis
 Gothic cathedral, wide shot, hyperrealistic, moody
 paper quilled black lilies by JUDITH + ROLFE, edge to edge, hyperrealism, elegant, beautiful, pale blue background
 The Vampire Queen Lilith, scolding, pale skin, beautiful, gorgeous, alluring, Mesopotamian clothes, tomb backdrop, fantasy atmosphere, mystical, magical aesthetics, illustration, by WLOP,
-snake school photo
 penguin sitting on a blanket and eating a sandwich, ultrarealistic
 a beautiful gleaming holy sword with a golden blade that is lying in a pool of glowing white liquid, fantasy, concept art
 gothic old street in japen- moody,drawing,full body shot,complex
@@ -128,30 +103,22 @@ a shy man draped in a sheen of baby blue silk
 gorgeous woman with colorful tattoos, bra and shorts streetwear, city street, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k, no necklace, close up shot, choker shot, headless, armless, legless, extra eye, extra face, texture, pencil, distortion
 ravens Hugin and Munin engraved on a rock
 gorgeous asian woman with colorful japanese tattoos, louis vuitton logo bra and shorts streetwear, city street, fashion photography, her belly button is exposed, epic costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate,zara, elegant, vfx, postprocessing, octane render, 8k
-soft skin
 cat sphynx angel, magical, concept art, art nouveau
 burning all the books in the world
 Ultra realistic Cloud Strife from Final Fantasy Mask,exposed on a Museum gallery,Perfect Symmetry,Perfect Size, Ultra Realist, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k technicoloR ultra realistic, ultra detailed, ultra quality, unreal engine
-Overthinking
 inside a gigantic multi storey ancient throne room lit my dim fire torches, giant hand crashed through broken ceiling, cinematic lighting,
 cute sloth knight, dnd, colorful, summer, detailed, magic, fantasy, uplight
-an empire of sound
 beautiful portrait painting of an anime girl, cute, cyan hair, symmetrical face, symmetrical eyes, two identical symmetrical eyes, portrait, beautiful girl, artstation, trending on artstation, gorgeous, smooth skin, cutie, long hair, fantasy style, pastel colors , forest background, FHD,
 a beautifully carved marble statue of a jellyfish
 female centaur paladin, beautiful, brooding, dark curly hair,, d&amp;d character, portrait background focus, photograph realistic face, photograph realistic nose, brown eyes, photograph realistic eyes, photograph realistic mouth, fantasy, magic, rpg game, cinematic, ultra intricate detail, blur, 8k high quality image--ar 3:2
-FOX, ATTORNEY AT LAW
 black hole devouring the sun, realistic, 8k, solar system
 horrifying baroque full body sculpture of a man
 an enormous Dragonfly, intricate detail, iridescent wings
 Anatomical human body draped in tentacles, nervous system, neurons firing
-cyberpunk cat with red hood
-unholy forest
 luminous opalescent reflective crystal rose
-The lurker.
 painting of incredibly deep chasm made from tall amimae style chasm apartment towers, a city bridges the rims by Studio Ghibli, floating in the sky +Alien shuttle in sky+Beeple style, volumetric lighting, cyberpunk style, cinematic composition, wide angle, golden ratio, dof, background nighttime sky with bright lights,--w 1024
 guache female portrait in style of metal gear solid and Yoji Shinkawa and jeremy mann and Mucha
 art deco, geometrical, axometrical, isometric, heavy metal factory, grimy, pixel art, symmetry, gears, dieselpunk
-turrican ii the final fight
 The Sith Palace, home to the Sith Emperess
 Inside of a giant clock tower, intricate motors, gears and clock mechnisms, massive pendulum, bronze and steel
 pyromagic fuchsiaorange fluid in a dark style by Richard Anderson, Kekai kotaki, Jackson Pollock and craig Mullins, dramatic lighting
@@ -159,7 +126,6 @@ deep space nebula, star dust, vibrant, ultra wide shot + VFX + hyper detailed + 
 Lithograph of the wizard of analog media, VHS tapes, and CRT TVs
 An anthro lynx in a suit, handsome
 retro vintage sci-fi : : dark 2D matte gouache illustration : : dark deep space luxury intergalatic spacecraft
-dna 🧬 helix of an alien
 detailed Grimdark space warship
 intricate glass art in the style of niyoko ikuta, exquisite, elegant, biomimicry, caustic, colors of nature, mixture of reflective and dull finishes, highly detailed, corona render, octane render, unreal engine,
 the tree of life, cosmic, transcendant, vibrant color, clean linework, finely detailed, rendered in octane
@@ -167,26 +133,15 @@ black and red volcano eruption ink splatter texture
 blooming luminous basilica of the white fire lotus mosque, artstation
 a dinosaur-person warlock, D&amp;D character, pathfinder art, hearthstone card painting by tony diterlizzi, Wayne Reynolds, James Gurney, ILM, WETA Digital, character concept, concept art, illustration, detailed by Johan Grenier, J. Scott Campbell, Trending on artstation, Alex Horley
 Tarot card of a man painting on canvas in workshop + brushes on table, pots of paint + golden ratio + baroque + rococco + white + ink + marc simonetti, paul pope, peter mohrbacher
-Zinnia
 a colony of isometric bees and honeycombs dripping with honey living in a massive hidden thriving underground ecosystem with many types of structures flora and fauna, style of James jean, warm color palette, atmospheric perspective, lush, humid, mysterious, secret, magical, futuristic
 Beautiful-fairytale-illustration-screenprint, about princess tea party in a large formal palace garden, Versailles. ❤️
-corvo wearing venom
 a big 3d cute girl with millions of coloured clothes, big bright eyes and a magical smile in a magical world 4k
 silver relief engraving skull pattern
 an abandoned giant gothic hall filled with doorways to other worlds, multiple biomes, Magic, giant masses of people praying to a supernova in the sky, colorful, Ornate architecture, Statues, Spectacular details, wide angle shot
-tall knitted scarf monster
-cute little cannabis monster
-face
-hapiness
 A silhouette painting of a tree at the centre of the universe with shooting stars surrounding it, 4K resolution, Cinematic, Trending on artstation, in the style of Greg Rutkowski, Cosmic
-king with red robes
-A Crow Knight
-jedi temple guard
-quaint tree house village
 medieval peasant woman, yoji shinkawa art style, black and white
 test tube synthetic microcosm laboratory, cellular biology megacity, scientific glass
 female portrait in style of metal gear solid and Yoji Shinkawa and jeremy mann and Mucha
-demon in the vintage computer
 a beautiful portrait of the animal from the Muppets playing drums, 8k
 pretty nerdpunk woman, fantasy, goddess, wearing glasses, half body natural, character portrait, photograph, in the style of Charlie Bowater + Tom Bagshaw + Artgerm, lean natural face, bare shoulders, volumetric lighting, cyans and oranges illustration,
 classic film noir scene, black and white, closeup on face, Amy Adams as Intrepid reporter, shocked, surprised, mouth gaping in disbelief, intense frontlight
@@ -194,40 +149,27 @@ the engine room of a steampunk spaceship with a lot of gears and steam
 a man in las vegas, style of jim lee, daniel clowes, Sean Phillips, geoff darrow, wes anderson, david fincher, stanley kubrick, insanely detailed, rule of thirds, golden ratio, + epic illustration + high details + ornate, trending on artstation, no blur , color pencil, detailed and intricate, gouache painting, art nouvea, full body shot
 very technical and detailed Nintendo Gameboy blueprint
 waist up photograph portrait of a young man as finn wolfhard as ash ketchum wearing a pikachu hoodie, hoodie with pikachu ears and face, full lips, 70mm lens, shy pose, outdoors lighting, vivid emotion, symmetric circular iris, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
-bear soapstone carving
-🫀 👹 🦑
 Big bad wolf, Little Red Riding Hood, Beautiful maiden, fantasy creature, Wherewolf, Timber wolf, fine features, large soulfull eyes, Dark Forest, Grimms Fairy Tales, Fear, Danger, painted by Alphonse Mucha, Peter mohrbacher hyper maximalist, plastic surfaces, black paper, golden ratio, chibi, kawaii, character, concept art, 2d illustration, anime, Octane Render, trending on artstation, 8k, ecstatic pixel,
-MidJourney poster
 business men with head on fire landscape, hyper realistic
 a colony of isometric golden triforces living in a massive hidden thriving underground ecosystem with many types of alien structures flora and fauna, style of James jean, warm color palette, atmospheric perspective, lush, humid, mysterious, secret, magical, futuristic
-bright lights big city
 drawing of An abandoned city that was heavily damaged in an ancient war. The city is overgrown with jungle and the camera is high above the city, looking down
-cleric casting spell
 Valkyrie, blonde, epic lighting, godlike, etheral, divine, fantasy, gold armor, artstation, gold, pretty face, symmetrycal face, soft features
 the Necronomicon, painted by Mucha and Ferdinand Keller, symbolism painting
 lines and random squares and circles, geometric abstraction, pencil, marker, colored pencil, on paper, Joan Miró, white border
 many tetris pieces dropping down from the sky with many detailed buildings with windows lights, highly detailed, primary colours by Dan Mumford, beeple
 ethereal glowing jellyfish swarm with light from above
 husky african american man with a bald head and full beard wearing a black and gold steelers hat, obscuring his eyes, next to a medium build brown skin hispanic man wearing a trucker hat, sitting on a park bench posing for a Hip Hop Album Cover, while smoking weed, hyper realistic anime style
-crystal rose
 classic film noir scene, cross of Jena Malone and Kristen Stewart as femme fatale, high contrast, black and white, backlighting, cigarette smoke in room
 Moss Green Medusa Statue in Basilica Cistern, Jen Bartel, Dan Mumford, Satoshi Kon, Gouache Illustration, edge to edge, scarlet outlines,
 Render of a medieval fantasy female forest bandits wearing a black and sky blue armor and garments, Gold and silver ornaments, dark fantasy, Sparth style, Final Fantasy style, Tsutomu Nihei style, Emil Melmoth style, Craig Mullins style, Shinkawa style, centered image, golden hour, soft lighting aesthetic, volumetric lighting, Makoto Shinkai style
 beautiful Girl Landscape Pictures,full vetsion female-body shot, A pair of beautifully symmetrical eyes, Ring light eyeball, first-person view,complete limbs, fine face,hyper quality, high resolution, FHD, by artgerm and tsuaii and Krenz Cushart and Rossdraws ✦
 post apocalyptic landscape with big fire in the background all terrain armored car with spikes
-nighttime marshland
-dramatic snow storm in Tokyo
-...
 MidJourney IA taking control over the world, photorealistic 4k hd
 Krampus as Totoro sitting on a tree branch, digital art
 Full scan page antique lithograph of large coniferous trees, fantasy, faded colors, soiled paper, labeled diagram, detailed, Studio Ghibli style
 squirrel pathfinder, oil painting, portrait, palette knives, intricate complexity, rule of thirds, in the style of Adam Paquette, Svetlin Velinov, Daarken, Artgerm, Keith Thompson, and Eric Deschamps, face by Artgerm and WLOP, magic the gathering art, character concept
 victorian man strongly resembling both andrew garfield and liam hemsworth and steven strait and davood ghadami, warm cheeky smile, unbuttoned shirt, stubble, character concept art, three quarter pose, face art reference, studio portrait, smooth 8k cgi rendered in octane, high poly ray traced model, phong shading, soft dramatic lighting, depth, dark background
-Bigfoot photograph
-dreamy opium lotus flowers
-German shepherd dog portrait
 ornate baroque nuclear anatomical heart explosion in xenomorphic space, hyper detailed, 8k, conceptual art by Jim Lee, Emil Melmoth, The Nightmare by Henry Fuseli, art nouveau, Seth Mcfarlane, trending on artstation
-vaporwave cat ghost
 beautiful fallen angel disintegrating into black dripping ink and slime
 "The Rebel" — Jungian Dream archetypes
 favelas, soft colors, pastel colors, cinematic lighting, fireflies, ghibli style, trending on artstation
@@ -245,33 +187,24 @@ skull + magical + symmetrical + symmetry + flower bouquet + bright green vines +
 water lilies, lily pads, linocut
 seamless ai background, web 2.0, modern
 Interior of a Dark Wizards Sanctum, Green light, Cluttered with magical objects, Spell books, potions, Dramatic lighting, Epic composition, Wide angle, by Miyazaki, Nausicaa Ghibli, Breath of The Wild
-foo fighters concert, horror mood, 4k, glitch
 pyromagic potion fuchsiaorange fluid in a bottle in a dark style by Richard Anderson, Kekai kotaki, Jackson Pollock and craig Mullins
 Queen Akasha, portrait, traditional, shaman, hot, ancient festival, harper's bazaar, vogue, magazine, insanely detailed and intricate, concept art, ornate, luxury, elite, elegant, trending on artstation, by ruan jia, by Kenneth Willardt, by ross tran, by WLOP, by Andrei Riabovitchev, no depth of field, 8k,
 thai night floating market with bokeh in the background, tilt shift photography makes it look miniature, vivid colors, lots of food on the boats
-&lt; in the style of , Hr Giger, Fibonacci, Oscar Chichonia , laptop copmuter, tree , weird, creepy, horror, labyrinth, symmetrical sacred geometry, shiva, psytrance artwork, black metal artwork, abstract, neon light, intricate forest, cyber
 beauty in mostly black and white, abstract, glitch, mysterious, mathematics and geometry ,drips, old paper
 cross-sectional anatomy of a mechanical crow, technical engineering schematic, annoated
 rotting hyper realistic raven skull with overly many details, octan render, 8k, artstation
 hi-tech, lo-fi, cross-section diagram of mechanical crow's skull, technical engineering schematic, anatomy, scientific annotations, measurements, numbers, greyscale, black bacgkround, grunge and noise
-steampunk superhero
-No text prompt
 in the style of Jamie Hewlett, retro trading card, detailed illustration, Willie Nelson with braids and a bandana, cyborg, daft punk, illustration
 an imperial cyborg angel machine stands before a red wall
-&lt; beautiful
-"Anya Taylor-Joy", cinematic, sui ishida art manga, eldritch demon anime ,dark atmospheric lighting, volumetrics, manga style, artstation, black and white, lineart
 cute Quetzalcoatl small feathered dragon. Cute eyes. Cute fantasy creature. Bioilluminescent Jungle filled with fantasy creatures and life. Fantastical world. Intricate details. Neon diffuse glow effect. Iridescent colors. Aztec civilization. Stunning octane render.
 the ring-blancer, ultra-realistic 4k 3d
-divine earth energy
 Steve harvey drawn in the style of a classic Archie comic book, illustrated, cartoon, style of Dan Parent
 Badass Troll Queen with Grey Magenta skin and long whiskers, dripping clear glossy slime, synthcore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
 heroic female monk stares down a hallway full of armed soldiers, red robes, black armor
 red alien crystals powering up spaceship engine, 3D redner, reflective glass, photorealistic, ultra real, 8k Render, Unreal Engine 5
 A highly ornamented fantasy castle, cliff side, lush forest, Atmosphere, Dramatic lighting, Beautiful Landscape, Epic composition, Wide angle, by Miyazaki, Nausicaa Ghibli, Breath of The Wild
-Chemistry
 Badass Troll Queen with Charcoal Gold skin and short whiskers, dripping clear glossy slime, synthcore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
 gothic landscape dark scenery, beautiful dramatic lighting
-cyberpunk
 mona lisa, punk, concept art, cyberpunk, sketchy, symmetrical
 photograph of cthulhu drinking mojito at the beach, Exquisite , realistic, artstation, arnold render, dramatic lighting
 smiling scientist woman, holding tarot card, constellation
@@ -279,14 +212,12 @@ Deep sea exploration by van Gogh
 beautiful, playful grin, Margot Robbie heroine in lace outfit
 mecha temple carved out of dark cosmic matter, extremely detailed, hyperreal, hard surface art, sci-fi
 quaint glass house village in the stars, disney
-kubrick directed powerful epic shot of a large werewolf. bodyhorror werewolf designed by rob bottin. Cinematography by Roger Deakins
 orean actress with a translucent body made of water, water elemental, undine, clear glassy skin, shining in the light , Dynamic perspective cinematic composition
 Coca-cola , As a Futurist Cyber Neon poster , Symmetric,collage , Cellshading,Inked
 dawn and black clouds, rusty buildings covered with mold, foggy
 &lt; deep chasm of fire and lava, modern observation tower built into the rock by frank Lloyd wright, stars, smoke,
 quaint glass house village in the stars, pixar
 massive dark brutalist military fortress with tall walls and tall antenna built into side of mountain rock face in cyberpunk Antarctica at night, gloomy, snow storm, low angle, close up, vray, hillls, single light source, antenna, wires, overhead light, dramatic lighting, dark, wreckage everywhere, moody, spooky, cinematic
-a null void storm
 quaint glass house village in the stars, dreamworks
 humanoid fungus descending from space into brutalist rave-environment amongst crowds of humans, ultra-realistic, trending on artstation, painted by hr giger and gerhard richter
 psychedelic peacock , korin ogata
@@ -295,7 +226,6 @@ A lush futuristic paradise in the city by Daniel Simon design, dynamic angle, ep
 gothic revival castle on cliff overlooking ocean
 gouache and line illustration of a big Rabbit skull with green and navy blue tropical leaves, red and orange flowers around, by Dan Mumford, Laurie Greasley, Satoshi Kon, Ian McQue
 A yellow Beetle creature with treasure growing off it's back and horns like a Rhinocerous Beetle. wide angle
-dark tranquility + horror + cinematic + 8K + hyper detailed
 Cyborg skeleton, portrait, darkness, illustration, mixed style of Tsutomu Takahashi, Tsutomu Nihei
 mansion office, concept art, dim, moody, one large window
 19th century Sci Fi obscura textbook page
@@ -309,21 +239,16 @@ snow white photographed by Joel-Peter Witkin
 octopus hybrid aleister crowley, photorealism, anime, steampunk, art nouveau, full of color
 godess, curly hair, red hair, gold, symmetric, hyper realistic, 9:16
 animation art, studio ghibli style, GRAND PACIFIC DRIVE
-Sparth, Brom, mangroves, steampunk , dragonflies, iridescent blue butterfly, jewellery, wands, robotic, roots, golden shell, mecha, robotec, gundam, tetsuo, octane render, highly detailed and intricate, golden ratio, ornate, breathtaking, ethereal, ominous, gorgeous, cinematic, magical, awe inspiring, cinema 4d, cgi, cinematic shot, hypermaximalist, hyperdetailed, volumetric lighting, epic
 High detailed Black ink drawing white palace, what lies beneath, cinematic shot, abstract, Surrealism dream, trending artist, realistic shading, texture
 handsome cute Obsidian dragon in snowy forest, dnd character, background focus, fantasy, magic, realistic textured skin, reflective gemstone textured scales, hawk feather, hawk wings, lizard legs, lizard pose, big glowing eyes, clear clean, by lya kushinov, Avetetsuya Studios, Alexandra Fomina artstation, by Makoto Shinkai, Shinerai, digital 2D, matte painting
 life as a journey of many masks and few faces
-borderlands
 A young guy with black hair smiles against the blue sky. Rocks are visible on the horizon. Bending his elbow, the boy rested his sword on his shoulder. The guy is dressed in light leather armor.Two small black horns are visible on the human head. Far on the horizon, a man with a gray beard and hair can be seen, his torso is bare and torn condals are visible on his hands, and a golden crown is on his head.Next to a young guy with black hair is the same guy, but made of black paint and transparent, he sits on his knees, pressing his hand to his face. The sky is blue with clouds
-the grays, the hollow earth
 man and his alpacas standing at the entrance of an epic temple, level design sun and moon symbols, artstation
 sci-fi soldier, Hicham Habchi style
-glitch cult
 Portrait of the stoner handsome young man has curly medium volume hair, bearded, arabic features, corny skin, kohl, photorealistic, photogenic, captured by the latest version of Canon portrait camera and lens.
 character portrait design for a roleplaying game, sense of elitism, middle eastern businessman male hero with medium well groomed dark blonde hair and an expensive gallant suit, Craig Mullins, Elena Masci, Jen Bartel, Dan Mumford, Smooth Gouache Illustration, Edge to Edge, Full Frame, character design by Mike Mignola, body and head portrait
 The merchant negotiates and sells at stall. Amazing background or arabian souk + golden ratio + baroque + Tarot card illustration layout + rococco + white + ink + Michael C. Hayes, Charlie Bowater, Tom Bagshaw, paul pope
 saint of the broken prism, cyberpunk diver, cables, headset, lights, blurry background structures, matrix, neon lighting, geometric, art nouveau, yuumei, trending on artstation, 8k, clean, vector art--version 3
-style Peter Lindbergh
 anime style portrait of Kristen Stewart cosplaying as Rei Ayanami, looking leftward, closeup on face, pixiv
 plump short bengali man being gaslit
 a model wearing a baroque military uniform
@@ -331,14 +256,10 @@ gas mask, dark art, void, tentacles, realistic, cinematic, concept art, characte
 Dominican Man, Braum from League of Legends
 futuristic city drawn in the style of Code Geass, advanced technology architecture and skyscrapers
 cute witch with orange hair, peeking from behind a corner
-retro dark vintage sci-fi : : 2D matte gouache book cover illustration : : deep space macabre guardian of quantum horror
-&lt; female Dark God, art style pulp horror, in heavy ornate armor, long wavy black hair, extremely detailed, insanely detailed and intricate, high detail, concept art, by Clint Langley, artofsickness666, and Nekro XIII
-dark cga games
 A geologist, man, human, 20 years old,
 a portait of a man crying, a zipper running down his cheek
 a old wrinkled man with a long beard and a nose piercing, detailed, silk, shaman, harper's bazaar, vogue, magazine, close-up, concept art, trending on artstation, digital art, 4k render
 portrait of a man who forgot to do laundry, highly detailed, character concept art, 4K HDR, photoshoot
-1950s scifi demon in a vintage computer, very detailed, forbidden planet
 handsome male mercenary in tanktop clothes with dark brown hair, Jesper Ejsing, clean shaven
 silhoutte of a cloaked figure in front of stairs to gothic castle
 the dramatic cyberpunker, geometric, in the style of paul granger, Mike Mignola, trading card, detailed illustration, cables, screens, yellow, symmetrical picture, portrait, illustration
@@ -347,62 +268,45 @@ Occult Fantasy Human Male Portrait Ultra Realistic Full HD 8K Cinematic Octane R
 an Sci-Fi style Russian submarine in yellow underwater deep sea exploration lights on bloom glow murky water artstation style cinematic ultra-realistic
 a tight stream of white butterflies wearing a suit and autumn coat, by Yohji Yamamoto
 dieselpunk Samarkand, unreal engine, in the style of art nouveau, Zdzisław Beksiński
-trippy atompunk leviathan
 vending machine in an empty alley in the back of tokyo street, dim lighting, illustration art, concept art, hyper detailed, artstation
 massive mechanical wings white azure full body GUNDAM Mecha, GUNDAM wing style armor, GUNDAM armor, samurai armor, mortar headds, mech suit, full body armor, lamellar armor, exoskeleto, symmetric, octane render, unreal engine, cinematic, ultra detailed, trending on artstation
-ancient spirit tree
-floating inside vast space station with buildings, cinematic + demonic rat man in Astronaught armour suit + in style of Laurie Greasley
 White Baroque Wardrobe, detailed, flat, front view, no perspective, hyper-realistic, physical render
 cowboy resting at camp, painting, trending on artstation
 flower petals made of chiffon folds, silk luminescent, iridescent, pearlescent, glint, rays, illuminated, pattern, seamless
 King man with light crown, portrait, beautiful symmetric body, hyperdetail, photorealistic, by Andrei Riabovitchev
 floral-pattern vintage-wallpaper, dramatic lighting shadows, detailed illustration, Dan Mumford, Alphonse mucha, gouache painting,
 David Hockney style Lord of the Rings Mount Doom
-portrait of a Labrador
 "La Grande vague de Kanagawa de Hokusai" in a snow globe with a solid blue base, studio lighting,Light reflect,metallic, beautiful, detailed , fog , Ultra Realist, Ultra details
-patrick nagel angelina jolie hackers robot kimono cyborg kabuki geisha akira anime ghost in the shell manga cyberpunk
 quaint leaf house village floating on a glowing blue lagoon, Toei Animation
 a sign that reads "drink water"
 quaint glass house village in the stars, Toei Animation
 delicate flower made from tissue paper
-&lt; &lt; an elden ring inspired skeleton knight in black bone armor, Mortal shell, designed by yoji shinkawa and craig mullins, h.r. giger xenomorph inspired, artstation, pete morbacher, rococo, art deco, highly detailed, 4k post-processing, 8k resolution
 Walmart Shopper, the fat American woman, lazy, underdressed , hateful , portrait, headshot, highly detailed, Zbrush sculpt, golden ratio, symetry, dynamic light, Pixar, stylized Octane render, By Max Grecke and Gabriel Soares
 a handsome male knight turned to stone by the state of Medusa, highly realistic,
 Cthulhu by Lovecraft in a snow globe with a solid green base, studio lighting,Light reflect,metallic, beautiful, detailed , fog , Ultra Realist, Ultra details
 quaint leaf house village floating on a glowing blue lagoon--h 600
 beautiful, lovely elven prince, young male, darker skin, curly hair, green eyes, wearing black robe, beautiful eyes, very detailed portrait
-a mad scientist
 several different tiny ecosystems contained in a large spice-rack
 21 year old male rock star with face and neck tattoo with short blonde hair posing for the cover of a music magazine.
 delusions of grandeur, hyperreal, time travel, intricate, detailed, fractals, patterns
 I'm stuck in the UK and I forgot my laptop
 beautiful warrior queen, long hair, full body, greenish blue tones, fiery hair, fiery colors, highly detailed, cinematic, alphonse mucha, dystopian post-apocalyptic wasteland
 multiple black concrete towers,designed by David adjaye , in futuristic + medieval wall san gimignano , highly detailed 8k octane render, by Francesco lojacono , featured in evolo , architecture photography, hyper realistic, located in toscana ,cinematic composition, aerial shot, summer daylight
-melting monsters with bubbles
-Outer space full of unspeakable things and cosmic horrors
 Two futuristic samurai walk through a cyberpunk alley during a downpour, neon signs hang on the walls, illustration, by Tim Doyle
 Hindu Temple as big as the universe itself with multiple people surrounding the temple and kneeling in front of deities in the temple
-being vegan for Spock sake
-death tarot card
-complete alphabet design
 hunky male angel fullbody Ruan Jia style
 Christmas Snowman,Creepy DArk , Lovecraft Style, studio lighting,Light reflect,metallic, beautiful, detailed , fog , Ultra Realist, Ultra details
 where’s Wally ,technologie type
 trading card game, medieval religious text borders
 pretty woman posing in front of plains + beauty + warm light from behind + bright green eyes + auburn hair + large well-defined eyelids + artstation + octane render + cinematic color grading + muted colors + soft light + rule of thirds + like a professional model + cinematic + 8K + 3D render + 35mm
-london in the year 2050 4k
 brainless people waiting for their last hope to enter in paradise
 Biblical accurate angels forming a heart in the sky, rendered in octane, ultra-detailed, film grain, aesthetic
 a fantasy childrens book moss and flower covered knome hobbit short medieval tower castle house by Jean-Baptiste Monge , post processing, painterly, book illustration watercolor granular splatter dripping paper texture, ink outlines, painterly
 a realistic portrait of young muscle man with a ponytail and a mustache
-male drow emo rockstar rogue
 a busy pedestrian street in new york in 2030 with people, cars, bicycles, information signs, architecture render, zaha hadid, sunny, realistic render
 evacuation of the city of Paris after the eruption of a volcano
-Wunderkammer, large interior, with historiated skulls, fantastic skeletons, ex-voto, deformed pearls, crawling creatures, jersey devils, alchemical manuscripts, mysterious archaeological finds, hallucinated paintings, two-headed lizards, bones, teeth, dried leaves, rotting exotic fruits, naturalia, artificialia, corals, hyper realistic, extremely detailed, 4K, octane render, uplight, octane render, ar 16:9
 a serious young woman who looks a lot like katee sackhoff, in robes of white silk, looks down, eyes closed in peace, crowned with a wreathe of intricate starry pale ribbons, geometric divisions, minor crimson and ivory details, by karol bak and mucha,
-"a portrait photograph of a female devil by Alessio Albi:3", "beautiful full face, symmetrical face:1.5", "artstation,deviantart,hyperrealism:1.5", "green eyes, long blond hair, a small nose:1" - @GB666 (57%) (metered, fast)
 Pamela Anderson Amiga loading screen
-lava man, by Yohji Yamamoto
 film noir illustration of a neon cyberpunk cityscape street, a dramatic and violent lightning storm at night, light fog, studio ghibli style, style by jeehyun lee, clean digital illustration, complementary colors, concept art, cinematic lighting, soft atmospheric lighting, dramatic lighting, technicolor style, bladerunner style,
 cyan black hole in a purple nebula
 magical rainbow berry forest in the grand canyon, Toei Animation,
@@ -410,22 +314,16 @@ the meaning of life, universe and all things
 An imposing divine tower , Carved from wood, Atmosphere, Dramatic lighting, Beautiful Landscape, Epic composition, Toei Animation,
 hyper realistic robotic dragon, trans colors, 8k, incredible detail
 and then you sense a change, nothing feels the same, all your dreams are strange, love comes walking in
-17th century bodyhorror, rob bottin, peasant, pregnancy, womb, tron, gel lighting, stan winston studio, dark, moist, creepy, 8k, photo realistic
 medieval walled city ornate, hindu architecture, collossal, wide angle view, sunrise, fields, river, jungles, towers
-kitty man, by Yohji Yamamoto
 Amy Rose in the style of Boris Vallejo
 portrait zelda nintendo , artstation trend , explosion background trending on artstation and twitter by Yoneyama Mai and Krenz Cushart, trending on pixivpour technique
 rose quartz cherry blossoms, volumetric lighting
 pixelart style retro background landscape city nigth neon
 queen with big dress in a castle by the sea realistic
-glass cat&gt;forest
-what in hell is this
 Jealousy unknown to the world in the heart of a Taurus man
 dryads reading books in a mountain pool
-luke evans, fantasy
 photorealistic gray cat sitting on top of a pile of laundry, morning
 1983 toyota camry in the style of jacobus pierneef
-soul in the vintage computer
 sacred geometry. close-up of geodesic bird's skull
 imagine tube map torn in to many peices forming a collage of an abstract city, stanley donwood, victo ngai
 young military woman in swimsuit Amiga loading screen
@@ -433,21 +331,13 @@ A broken sword left in a puddle, the reflection showing a neon soaked cyberpunk 
 luke evans, studio portrait, character design, character concept, headshot, sharp focus
 zombies dressed in black, dancing in front of berghain, snow around, very detailed
 A cheap electric city car interior, futuristic, high detail, intricate, photorealistic, neon lights
-American Psycho
-Bayonetta Amiga loading screen
 a colorful fabric pattern for a kids blanket
-lab organized
-nebraska vaporwave sunset
 fireflies, pond, magical blue flower, fantasy, q 2 --ar 16:9
-oh, this is weird
-cyberpunk city at sunset
 Girl taking pictures in tokyo while it rains, realistic
 A disco starship, 70s illustration, massive scale, colorful
 a daguerreotype of a young male scientist holding glass spheres full of funghi and small humans in a laboratory overgrown with mycelium and jellyfish in glasses filled with stormy seawater
 a portrait of a powerful wizard, black cloak, on a rocky cliff by the ocean volumetric lighting
-warning poster, retro, text
 fantasy renaissance maid, hollow eyes, looking worried as she stands in the room of a courtesan
-twin peaks
 we share being with everyone and everything
 Colossal and beautiful hindu temple inspired city, Ornate architecture, carved in black, white and rose marble, Cliffside, lush jungle, massive river, Atmosphere, Dramatic lighting, Epic composition, Close up, Low angle, Wide angle, by Miyazaki, Nausicaa Ghibli, Breath of The Wild
 male mesmer in flowing robes becoming illusionary butterflies, melding, invisible, thaumaturgical, character concept art in the style of gw2 loading screen artwork
@@ -455,28 +345,19 @@ an intricate mesh of metal fibers
 Colossal and beautiful hindu architecture inspired walled city, Ornate, carved in white marble, Cliffside, lush jungle, Atmosphere, Dramatic lighting, Epic composition, Close up, Low angle, Wide angle, by Miyazaki, Nausicaa Ghibli, Breath of The Wild
 roaring dragon with glowing eyes, Anne Stokes, Todd Lockwood, Welsh Dragon, Smaug
 Male elf similar to Lee Pace with long white hair wearing a golden antlered crown across his forehead. He has green eyes and a slight smile. He wears forest green clothing. detailed + renaissance art style
-infinity stares back
-neon pilgrim
 lady death futurist, long white hair, full woman body, gothic
-witch with tarot
 a greek warrior slaying a mythical beast, greco roman architecture octane rendering hyper detailed
 beautiful woman wearing black shawl, full body in profile, fiery hair, blueish green background of trees and leaves, fiery flowers, Peter Mohrbacher
-a life unseen
-**&lt;&lt;&lt;
 black hole in the center of a nebula, supernovae, purple
 a young handsome male college student look like nct jaehyun wearing cool glasses, in a beige turtleneck sweater, fluffy light brown hair, bright smile, character design, concept art, fashion illustration, by NCSOFT, realistic, macoto+botw, in Japan HIGHLYPWM, symmetrical face and eyes, intricate details, trending on twitter and artstation and pinterest,
-archon
 quaint glass house village in the stars
 massive fantasy tower among huge ruined city, sunless sky, stars, purple galaxy
 portrait of a gorgeous female wearing crop top and shorts, smiling, in a spaceship crew quarters room, short curly pastel hair, tattoos, sci-fi character concept art, symmetrical face and body, single face, cinematic color grading, soft atmospheric lighting, hyperrealism, in the style of Guweiz, beautiful, cute
 quaint glass house village in the sky ghibli
-cotton candy evil forest + Lovecraftian dark geometric, Lovecraft, Gigger, horror, cursed, skin, dark runes, unholy, fractal, fog skull, bones, spiders, weird creatures + insanely detailed and intricate ,stunning, symetric, intricate accurate details, clear clean, artstation trending + dark, ghostly green, gloomy purple + volumetric light, dusty light, photorealistic, f/2.4, quixel megascan
 blue 1993 toyota camry in the style of vincent van gogh with a nice background
 A psychedelic mushroom tribe giving a sound healing using instruments made out of rainbow light, in a circle surrounding planet earth, in the style of Moebius
-fullbody portrait, mecha
 orange trees in the summer evening sun wide lens photo
 passengers looking at a metro map totem sign, on the platform of a modern metro station by zaha hadid architects, realistic render
-fluid art
 a robot, humanoid, anatomically like a cosmonaut, with full body, hands and feet with many clothing details, with reflections, with a helmet on his head with glass effects, with lights in a fantastic alien world exploring various plants, many plants and extraterrestrial forms, a light in.back high in the sky, hyperrealistic and surrealistic, render, DOF, unreal engine5, photographic, reflections, hard surface, modeling, illustration concept art, tridimensional, artstation, cg society, octane render, readshift render, resolution, hyper resolution
 huge fig tree jungle liana thick branches tangled into the shape of a human head, flowers on the edges
 lonely little girl, portrait, studio portrait,
@@ -487,7 +368,6 @@ Airships in battle during the Thirty Years War
 Cerberus protecting gate, dark green, cinematic scene
 100 different paranormal and alien entities of varying sizes and forms, appearing in a foggy moonlit Martian swamp
 greek temple with fountain and surrounded by water
-Amy Rose Amiga loading screen
 handsome male mercenary in tanktop clothes with dark brown hair, Jesper Ejsing, clean shaven face
 beautiful landscape, blue:10, octane render, unreal engine, cinematic, concept art
 large monolith jellyfish giving a speech to dozen of mysterious people in suits, soft illumination, intricate detail, highly detailed, semi-translucent, dismal, forlorn, atmospheric, hades, rendered in octane, slav epic
@@ -495,11 +375,8 @@ Uma Thurman as a youthful water dryad fairy wearing corset and shorts, standing 
 love is more than just a game for two
 scrungy idiot, salamander, cute, chibi, full shot, 8k, hearthstone, symmetrical, strawberry frog
 portrait of Warhammer 40k space marine Asian, male, well defined face, beard, full body, no blur, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic,
-V is very very extraordinary
-the feathered dragon serpent
 awesome young explorer woman, with a streak of color in her hair, looking enthusiasticly forward with positive determination
 A master of the mystic arts stands next to a massive, three eyed ancient, utukku on a clifftop on the edge of the ocean, at dawn, shaping all the light from the sun into a gemstone filled with golden light. Hyperrealistic. Fantasy.
-Slasher horror beautiful scene, accurate detail, cinematic, emotional, award winning
 silhouette man, cosmic, dark geometric, illuminated manuscript, clear, intricate detail, italo-byzantine, gary frank, charlie bowater
 shadow of the beast loading screen
 trail cam footage of a group of anime girls wearing sailor moon outfits and cat ears finding the camera in the woods, f5.6, 50mm lens, nekomimi, forest background, vivid emotion, celestial nose type, extremely defined philtrum, high cheekbones, slim jaw, big eyes, full glossy lips, lipgloss, low angle medium shot, detailed moisture, detailed droplets, detailed intricate hair strands, nose sheen, DSLR, ray tracing reflections, symmetrical face and body, cgsociety, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production
@@ -514,9 +391,7 @@ guy with a ponytail orange hair sidecut learning in front of a window in a big d
 La Grande vague de Kanagawa de Hokusai , As a Brutalist poster Ultra Realist, Ultra details
 Green furry muppet-like creature Juggling on circus arena
 Harley Quinn by jeffrey catherine jones
-A couple next to Letter E
 Zendaya as a youthful water dryad fairy wearing corset and shorts, standing in a swirling rock pool, swirling fuschia flowers, fashion photography, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
-slasher horror twitter profile banner image
 Oil painting, linear perspective, interior of a room in a renaissance palace, by jean van eyck
 1993 blue toyota camry in the style of claude monet sunrise, impression
 Stranger Things , As a large biblical fresco Poster
@@ -524,7 +399,6 @@ trail cam footage of a group of anime girls wearing maid outfits and cat ears fi
 beautiful realistic goddess of beauty and wind, flowing white silk gown
 a woman with butterflies for eyes
 A poster for the anime JoJo's bizarre adventures with Jolyne Cujoh as main character
-Ghosts in an WW1 trench
 rugged light-brown young male warrior-mage, spirit of light, with silver sword, tall, broad chest, slim, long legs, dark wavy hair with blonde highlights, , blue eyes, detailed portrait, dark red leather medieval military uniform with silver tracery, lifelike 8k hd wallpaper
 a wild alien landscape, flailing clumps of tentacles and tendrils, nodules bloated with fluid, hyperrealistic, photographic, very detailed, subsurface scattering, post processing, heightened detail, clear, very realistic render, very detailed render, rendered in Unreal engine, glistening and glinting
 Hyper realistic Rubiks cube high-rise
@@ -533,21 +407,16 @@ a beautiful painting with a lot of detail of a huge Japanese city by Miyazaki st
 a stressed girl, highly detailed, character concept art, handsome, perfect proportions, perfect face, perfect eyes
 1983 grey toyota camry in the style of claude monet sunset, impression ultra realistic
 cute green fit medusa woman in a copper swimsuit taken with DSLR cinematic atmospheric
-inverse waterfall
 cthulhu having a doobie with friends
 suzu Hirose as an astronaut, wearing a Victorian steampunk leather and copper spacesuit, bright eye makeup, face by Artgerm, photo by mario testino and Charlie bowater, cinematic, hyper detailed, micro details, insanely detailed, trending on artstation, concept art, Peter Paul Rubens and Peter Mohrbacher style, rococo baroque, insanely detailed and intricate
 Batman , As a large le dernier souper de Juan De Juanes , 1560 Poster , Ultra Realist, Ultra details
-shrunken pirate head
 on the basic physics, rich colored ink, labeled diagram of the creation of physics, celestial bodies, angels at the border, labeled
 multiple stone towers,designed by David adjaye , in futuristic + medieval wall san gimignano , highly detailed 8k octane render, by Francesco lojacono , featured in evolo , architecture photography, hyper realistic, located in toscana ,cinematic composition, aerial shot, summer daylight
-Ethereal Cosmic Demon God sitting on an Ornate Obsidian Throne : Moon: Wisteria bloom, 8K, HDR, Iridescent
 Matt Jolly with a metal bottom jaw and visible sharp teeth visible only on the top jaw, full body portrait imagined with a black bandana, and long black trench coat and red tinted steampunk goggles, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
-turrican loading screen
 handsome male mercenary in tanktop clothes with dark brown hair, Jesper Ejsing, shaved face
 handsome, brown young male warrior-mage, spirit of light, holding silver sword, tall, broad chest, slim, black wavy hair with blonde highlights, ponytail , blue eyes, dark red riding leathers with silver tracery, lifelike 8k hd wallpaper, detailed portrait,
 Hand shape. Amazing background + golden ratio + baroque + Tarot card illustration layout + rococco + white + ink + Michael C. Hayes, Charlie Bowater, Tom Bagshaw,marc simonetti, paul pope, peter mohrbacher
 a portal standing in the desert with an apocalyptic city inside
-giant deku tree
 beautiful light-brown female warrior-mage, spirit of light, with golden spear, full body, tall, generous bust, slim, long legs, dark wavy hair, silver highlights, detailed face and torso, dark green leather riding clothes with golden tracery, lifelike 8k hd wallpaper
 Spiderman , As a Graffiti poster
 Poster saying "People against MidJourney"
@@ -557,27 +426,20 @@ male black goth vampire with dreadlocks dressed in black and slightly red balenc
 trail cam footage of a beautiful anime girl wearing a hatsune miku cosplay outfit, forest background, vivid emotion, celestial nose type, extremely defined philtrum, high cheekbones, slim jaw, big eyes, full glossy lips, lipgloss, low angle medium shot, detailed moisture, detailed droplets, detailed intricate hair strands, nose sheen, DSLR, ray tracing reflections, symmetrical face and body, cgsociety, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
 a colossal enchanted medieval stone citadel, with black spires and towers. The citadel sits in a barren rocky landscape. A small fire burns bright in the center of the citadel. A storm is on the horizon. Fantasy art, landscape.
 **wolves at the door by James Jean
-cute low poly deer head
 woman with colorful tattoos, wearing corset and shorts, standing in a swirling rock pool, swirling fuschia flowers, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
 badass sheep archer woman, character concept art, three quarter pose, face art reference, studio portrait, smooth 8k cgi rendered in octane, high poly ray traced model, skin shader, soft dramatic lighting, depth, dark background
 Tbilisi city view cyberpunk, zaha hadid buildings, flying lamborgini aventador, alian invesion
 beautiful light-brown female warrior-mage with golden spear, full body, tall, generous bust, slim, long legs, dark wavy hair, silver highlights, detailed face, dark green leather riding clothes with golden tracery, lifelike 8k hd wallpaper
 number 15, cyberpunk, neon sign
 Chinese girl in dress, Qing, fashion, photography, detailed, intricate, futurism, sci-fi
-a tiny universe that fits in a shell
-ice dragon
 powerful dark matter mancer, dark soul 3, Extra-Wide Angle, 3d zbrush, trend on ArtStation, Realistic Lighting, Volumetric Lighting, dramatic, 8k, cinematic, super detailed, vfx, symmetrical face and body, full body portrait, cinematic lighting, hyperdetailed, detailed realistic symmetrical eyes, cinematic lighting, hyperdetailed, cgsociety, 8k, high resolution, noah bradley, Billelis, masamune shirow, katsuhiro Otomo, insanely detailed and intricate, dark, dramatic, powerful, poster, cinematic Lighting through volume, Style=render, highly detail render with octane, octane render, color black and gold, photorealistic
 water dryad fairy wearing corset and shorts, standing in a swirling rock pool, swirling fuschia flowers, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
 youthful water dryad fairy wearing corset and shorts, standing in a swirling rock pool, swirling fuschia flowers, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
 Anatomical human body draped in threads of light
-slasher horror twitter profile picture
 black skin vampire, male, 30 years old, 2020, short hair, portrait, strong, painting
 anime hacker boy with dark-red hair
-1750, steam punk, rock music, Lemmy Kilmister , HR Giger, old train, horror
 idyllic seaside portal, by studio ghibli
 Matt Jolly full body portrait imagined with a black bandana, and long black trench coat and red tinted steampunk goggles, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
-CHERRY BLOSSOM HILL
-geometric
 numerous castle on each other, reaching to the sky, hyper realistic, hyper detailed,
 a relaxed Asian girl, highly detailed, character concept art, handsome, perfect proportions, perfect face, perfect eyes
 a relaxed goth girl, highly detailed, character concept art, handsome, perfect proportions, perfect face, perfect eyes
@@ -587,8 +449,6 @@ Anime-style drawing of a boy with dark-red hair sitting on a computer in a dark 
 floating fractal trailing wispy smoke tendrils, very dark grey and red colou scheme, intricate details, extreme detail, concrete shader, golden ratio, volumetric light
 light elemental, completely made out of light, full body generous bust, slim hips, beautiful, dark wavy hair, silver highlights, brown skin, detailed, dark green leather riding clothes with golden tracery, artgerm, cute, realistic
 Mallard duck Nintendo 64 character
-the creation of the universe
-evil + interpol + horror + cinematic + 8K + hyper detailed
 gothic expressionist Elizabeth Olsen, big expressive eyes, flapper outfit, german expressionism, fashion study, sultry, mysterious, dr caligari, illustration, high contrast, alphonse mucha, tim burton, eyeshadow, graphic design, smoke
 eldritch god, lovecraftian god of crafting and vision, many eyes, tentacles, round body, 8k, grim, dark colors, celestial rays, symmetry
 an Orange baby dragon lay in a water cave - octane render - Disney style - cinematic 4k
@@ -602,7 +462,6 @@ trail cam footage of a beautiful anime girl wearing a maid outfit with cat ears,
 a moss and flower covered knome hobbit giant mushroom steam paddle wheel house boat floating on a river by Jean-Baptiste Monge, post processing, painterly, book illustration watercolor granular splatter dripping paper texture
 &lt; gorgeous woman with colorful tattoos, wearing corset and shorts, standing in a swirling rock pool, swirling fuschia flowers, fashion photography, her belly button is exposed, costume design, illustration, symmetrical face and body, single face, cinematic color grading, editorial photo, fashion, hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
 Chinese girl in traditional dress, fashion, photography, detailed, intricate, Fabric, 8k, sci-fi, future
-eldritch horror, boxy meat monster, symmetrical, corrupted, vivid, outlined with bright lights
 Giant made of plants surrounded by small humans, darkness, orange light, fire
 fireworks over a lake at night, matte, gouache, trending on artstation, deviantart
 portrait of a gorgeous female wearing athleisure set, smiling, in a spaceship room, short curly pastel hair, tattooed, sci-fi character concept art, symmetrical face and body, single face, cinematic color grading, soft atmospheric lighting, hyperrealism, in the style of Guweiz, beautiful, cute
@@ -618,15 +477,12 @@ flowers and vines creep up the white dress of a woman in a field
 close-up of geodesic bird skull
 Spiderman , As a renaissance poster
 hard blue light shines on woman in repose whose skin sparkles
-traditional indonesian woman strongly resembling both michelle yeoh and jewel staite, warm beaming smile, character concept art, studio portrait, 8k cgi rendered in octane
 twisting vines of a faerie maze from which you will never escape, soft lighting, illuminated, luminescence, concept art, fantasy, in the style of Studio Ghibli and Breath of the Wild
 beautiful girl with blue eyes and pale skin, long dark hair, in a cosy room filled with pink and purple lights, realistic render UE5, smooth skin, artgerm, top of artstation, character concept art
-the king in yellow
 vintage coins in a collectors case
 gothic expressionist Elizabeth Olsen, big expressive eyes, suit and tie, german expressionism, fashion study, sultry, mysterious, dr caligari, illustration, high contrast, alphonse mucha, tim burton, eyeshadow, graphic design, silent film star, clara bow makeup, golden age hollywood, black and gold, smoke
 Candyland in the quake engine VGA graphics
 high resolution neon blue bunny
-cute tissue paper cat
 realistic photograph of a very tall hamburger
 female necromancer wood carving bust full body high detail mood lighting
 A master of the mystic arts stands next to a massive, three eyed ancient, utukku on a clifftop on the edge of the ocean, in the night, shaping the light from the moon, billions of stars, galaxies and nebulae into a gemstone filled with radiant light. Hyperrealistic. Fantasy.
@@ -635,62 +491,43 @@ orange cup with black coffee and tiny dragon eyes seamless pattern drawing
 black paper, white tones, Inca temple illustration designed Marc Simonetti and Mike Mignola + intricate ink illustration + perfect symmetry
 wide shot of a billowing nuclear cloud wearing chic menswear, coat, shirt, tie, briefcase in the style of Yohji Yamamoto
 abstract dot to dot architechtral structure of a surreal city rising from ash. Teal fine lines on white paper, stanley donwood, victo ngai
-a cauliflower male character
 an African-American male superhero in tears in front of a car wreck on a highway in the desert, photorealistic rendery, Unreal Engine
 Horrific cosmic abyssal entity carry a massive weapon burning a planets surface full body portrait , 8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
-arctic icegun 4k cycles render
 the love of my life, dieselpunk, hyperdetailed, cinematic lighting
-Charizard eating popcorn
 gothic expressionist Elizabeth Olsen as Scarlett Witch, huge bright expressive eyes, flapper outfit, german expressionism, fashion study, sultry, mysterious, dr caligari, illustration, high contrast, alphonse mucha, tim burton, eyeshadow, graphic design, silent film star, golden age hollywood, red color scheme, clara bow makeup, intense stare, penetrating gaze, waist shot, medium shot, smoke
-old deku tree
 beautiful woman being burnt at the stake for witchcraft
-Beautiful woman by Henry Clive
-Norse god Loki
 typographic poster of "deborah" logotype, seamless pattern of punk rock Tokyo pychosis xenomorphic alien tiger stripes graffiti
 abstract dot to dot architechtral structure of a surreal city rising from ash. Black fine lines on white paper, retro colours , stanley donwood, victo ngai
 a photograph of joe biden laying his head down on an american-flag pillow with stars, wearing white pajamas, closed-eyes, symetrical, hyper-realistic, detailed, 8K
 abstract dot to dot architechtral structure of a surreal city rising from ash. Black fine lines on white paper, stanley donwood, victo ngai
 hotel map, 1900, indian architecture, asian inspired, isometric infographic, pastal minty green, salmon, white, in the style of Will H. Bradley
 gothic expressionist Elizabeth Olsen, big expressive eyes, flapper outfit, german expressionism, dr caligari, illustration, high contrast, alphonse mucha, tim burton, eyeshadow, graphic design, smoke
-an steampunk data center room
 a fairy ring on a small island surrounded by a river of sparkling pastel rainbow dye in a faerie forest grove full of fireflies and sunlight, soft lighting, illuminated, luminescence, concept art, fantasy, in the style of Studio Ghibli and Breath of the Wild
 hotel map, 1900, indian architecture, asian inspired, isometric infographic, pastal minty green, white, in the style of Wes Anderson
-small talk is so annoying
 throne of the queen of the cosmos, gorgeous, illustrious, watercolor
 painting of Rubik’s cubes falling from the sky into an incredibly deep chasm made from tall animae style chasm apartment towers, lots of windows, multiple city bridges the rims by Studio Ghibli, floating in the sky +Alien shuttles in sky+Beeple style, volumetric lighting, cyberpunk style, cinematic composition, wide angle, golden ratio, dof, background nighttime sky with bright lights,--w 896
 The Riddlemancer as a DC Comics villain
 wide shot of a billowing nuclear cloud wearing chic menswear, coat, shirt, tie, briefcase in the style of Yohji Yamamoto, isolated on a background of seismic vibration charts
-paleo festival nyon , meat , insects , cobwebs , snake , cyberpunk , ultra detailed, ultra realistic, photography, giger, cosmic horror, dramatic lighting,
 Goth style creepy male Thai temple dancer with white eyes and long nails, with bangles on his ankles and gold and black clothes
 battlefield 3, violence and brutality, pixiv, studio trigger, studio ghibli, detailed portrait, intricate complexity, in the style of Krenz Cushart, Ian McQue, Ilya Kuvshinov, and CloverWorks, watercolor
 Stained glass window depicting figures who harvest the grain and fruits in warm September evening
 Howl's Moving Castle, russian panel house
 A beautiful woman ghost in light blue color, passing through a wall, full body shot, fullnude noclothes notop, posing, clean and detailed portrait
-dungeons and dragons monsters
 beautiful hand. amazing background + golden ratio + baroque + rococco + Tarot card illustration layout + white + ink + Michael C. Hayes, Charlie Bowater, Tom Bagshaw, paul pope
-hunky male angel portrait
 Steve Harvey is the god-emperor of Dune
 a colossal enchanted citadel made of glass, with spires and towers also made of glass. The citadel sits in a valley that leads to the ocean. The sun sets on the horizon. The sunlight reflects off of the glass citadel. Fantasy art, landscape.
-celtic knotwork crow
 gothic expressionist Elizabeth Olsen, big expressive eyes, flapper outfit, german expressionism, fashion study, sultry, mysterious, dr caligari, illustration, high contrast, alphonse mucha, tim burton, eyeshadow, graphic design, silent film star, clara bow makeup, golden age hollywood, black and gold, smoke
-&lt;&lt;&lt; sp
 Angelic knight full body portrait rune on his armor and holding a very long ultra sword and a large double barrel shotgun, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
 helix dna, dark on black, detailed and intricate concept art illustration artstation,
 Pacific Northwest mountains with frozen over lake, a giant kraken breaks through from underneath the ice, people gathering around lake, epic, dramatic, moody
 Painting by Pablo Picasso,Ultra realistic Carbonara Pasta in the kitchen , Ultra Realist,No Blur,Autofocus,RBG color , Hot, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k technicolor ultra realistic, ultra detailed, ultra quality, unreal engine, lumen, 3d, 4d, 8k,
 adventures in slumberland, animated move
 imagine a nurse playing with her grand children in a large garden in the town of Tellin in Belgium. Monet mainting style.
-cute little fox monster
-motorboat yacht sailboat ship
-seamless pattern
 a beautiful blackyellow unholy katana japanese sword with a toxicgreen black blade, in a pool of glowing smoke, fantasy, japanese painting style concept art, thin lines expressive ink gouache drawing
 wide shot of a young woman with long hair and wearing a tight business suit and pumps, standing proudly on a round concentric rug in a large empty glass and wood conference room, by issay Miyake, and a full face kitsune mask, high fashion photography
 Painting by Vincent Van Gogh,Ultra realistic Carbonara Pasta in the kitchen , Ultra Realist,No Blur,Autofocus,RBG color , Hot, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k technicolor ultra realistic, ultra detailed, ultra quality, unreal engine, lumen, 3d, 4d, 8k,
-goldpunk landscape
 Angelic knight full body portrait rune on his armor and holding a very long ultra sword, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
-cocktail drink risograph print
 a young woman's face crumbles into dust as she is hit with sunlight
-happy Tuesday
 bee hive, young African American girl speaking into the opening of the hive, realistic, dreamy, ethereal
 cute cat small feathered dragon. Cute eyes. Cute fantasy creature. Bioilluminescent Jungle filled with fantasy creatures and life. Fantastical world. Intricate details. Neon diffuse glow effect. Iridescent colors. Aztec civilization. Stunning octane render.
 young african american girl standing in a tea cup flying through a space nebula
@@ -698,7 +535,6 @@ paper quilled black lilies &amp; amethyst crystals by JUDITH + ROLFE, edge to ed
 Van gogh with vr glasses, painting in the multicolored galaxy
 beautiful female angel statue over grave
 fractalornaments helix dna, dark on black, detailed and intricate concept art illustration artstation,
-, DreamPunk
 dana scully in jojo's bizarre adventure, jojo cover art, jojo anime style, by David Production, jojolion cover art, illustrated by hirohiko araki
 wide shot of a young woman stands proudly on a red round rug in a glass and wood conference room, woman wears a business look by issay Miyake, and a kitsune face mask, high fashion photography
 Uncle Saşa was a joking man, witty and well travelled and often at night, by the fire, would tell me stories he had heard or himself seen throughout time. oil painting by Ivan Konstantinovich Aivazovsky
@@ -708,18 +544,11 @@ the letter M as orange elongated coffee cup with dark coffee seamless pattern dr
 several people sitting in a circle talking to each other, surrounded by giant corals blending into a non physical cosmic portal, with light flows ascending, light dispersion, difraction, astral clouds and nebulae, eerie, artstation,
 simmetric two males with green skin + neon eyes, violet hairs + African coloured clothing, golden jewelry + ancient temples background
 Horrific cosmic abyssal entity carry a massive weapon to pierce the heavens full body portrait , 8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
-speccy graphics
 the letter M as orange coffee cup with dark coffee seamless pattern drawing
 epic baobab tree inside a gray granite canyon with ornately carved temple door at the end of carved stone steps, magical atmosphere, Renato muccillo, Andreas Rocha, Johanna Rupprecht, trending on artstation, wakfu colors, roger dean, natural lighting, photo real, realistic 4k octane beautifully detailed render, 4k post-processing render realistic, blue paper
-holodomor
-all my hate in a single fist
 beautiful contentJapanese Geisha , intricate complexity, rule of thirds,portrait, dramatic lighting,
-a dark hallway in the woods
-spirit blossom
 Nuclear explosion inside of a glass ball
-portrait of fat asian female clerk +comic book style + sci-fi + steampunk +grimdark +warhammer 40k + sci-fi +very detailed + pen and ink with colored wash +horror
 a human sculpture rising its hand to the sky
-tree village of ewoks
 Anime-style drawing of a boy with dark-red hair holding hands with a robot
 alexander mcqueen vampire gothic victorian
 female cosmonaut ballerina accompanied by jellyfish in on a bridge in prague at night, in style of harald slott moller and zdzislaw belinsky,
@@ -727,27 +556,19 @@ Moses splitting the sea in two huge walls of waves revealing the ground in the m
 A bottle full of energy Painting by Ushio Shinohara
 a ghost of a beautiful woman in light blue color, full body shot, fullnude noclothes notop, posing, clean and detailed portrait
 architectural floorplan drawing of elvish futuristic castle
-beautiful male demon with giant fiery glowing angel wings, shattered broken angel halo, thin horns
-carved jade dragon
-divine water energy
 By H.R. GIGER,Ultra realistic Carbonara Pasta in the kitchen , Ultra Realist,No Blur,Autofocus,RBG color , old RPG,Fantasy, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k technicolor Grayscale ultra realistic, ultra detailed, ultra quality, unreal engine, lumen, 3d, 4d, 8k,
 jungle megalopolis at night, jungle, rain forest, polluted city, sci-fi, wooden bridges, neon signs, soft smog, fishermen boat on river, cats walking in the town, fireflies, sci-fi, futuristic, dystopian, trending on ArtStation, complex architecture, intricate details, cinematic lighting, cinematic composition, shafts of light, soft colors, black foggy sky, by Monet
 &lt; arcade machine + lowtech system ,2 joysticks , ornate , carved from opal by tsutomu nihei, freight container, by Katsuhiro Otomo, Mobius, Geof darrow and Ashley Wood, details, peter mohrbacher, tarmo juhola, ivan laliashvili, james gurney, moebius, roger dean , emil melmoth, zdzislaw belsinki, Craig Mullins, yoji shinkawa, trending on artstation, flowers of hope by Jean-Honoré Fragonard, Peter mohrbacher, hyper detailed, insane details, intricate, elite, art nouveau, ornate, liquid wax, elegant, luxury, tentacles, full body CGsociety, hypermaximalist, golden ratio, environmental key art, sharp octane render, vray ,weta digital, ray trace, 8k, symmetrical
-&lt;&lt;&lt;&lt; sp
 Monkey Samurai silhouette with a samurai Sword in cherry blossom trees with cherry blossom petals in the air in a anime style,
 multi-colour wallpaper with stylized florals, William Morris style, rust, gold, green, white, blue, white background,--hd
-abyss of hell angels below and dragons above spitting music to the demons
 pastel colored poster of an apple, bauhaus
-realistic detailed spider monster demon, cute, chubby, 8k
 digital art of a moth, art nouveau style, trending on artstation, high definition, sacred geometry, vertical symmetry, horizontal symmetry, intricate detail
 young woman business look by issay Miyake
 dark timber house under tall gum trees
 A balloon with many huge eyes floating in the air,each eye is a different color,below is a green grass,fantasy,wonderland,magical image,realistic image,imaginary image, dreamy image,colorful,fairy tale,digital 2D,Animation,high contrast,cute,kawaii,The picture is clear,gouache illustration
 helghast pyromancer, crimson eyes, dark souls, killzone, battlefield 3, violence and brutality, pixiv, studio trigger, studio ghibli, portrait, rule of thirds, intricate complexity in the style of Artgerm and Ilya Kuvshinov
 Brown dog samari manga illustrated by Norman Lindsay
-A gloomy industrial city
 a rose with a face, black paper, baroque, tarot card, ink, intricate ink illustration, 8k, watercolor, matte painting, greyscale, beautifully lit, hyper detailed, cinematic, meticulous, decorative, trending on artstation, ray trace 4, burnt edges, post processing: in the style of Elena Masci, Tom bagshaw, Charlie bowater,
-interior
 red flare in the sky illuminates a kid in the woods while the police is looking for him at another place, light by James Turrell, night time, strong mist, cinematic, wide angle, matte painting, highly detailed, by gaelle seguillon, trending on artstation
 man throwing a red ball in a field, blue sky, photorealistic, Terrence Malick
 Astronaught Biologist investigating the last remaining plants on earth
@@ -755,24 +576,19 @@ nurture potential possibility create inspiring futures grow flourish
 a pink floyd album cover in the style of Ukiyo-e print
 call of duty soldier modern soldier wearing modern warfare gadgets futuristic detailed future soldier fog smoke dark tech cyberpunk 8k
 3D rendering of Concept art of a single post apocalyptic building.
-World war one soldier ghost
-define sorrow
 brutalist castle silver velvet dark wood draped golden circuitry iris van herpen gou pei James gurney Bernie wrightson hr giger dravidian prism arrakis lush forest foreground
 Half-Elf male from D&amp;D, shaggy blonde hair, bearded, ranger, black and green leather armor, uplight, highly realistic, fantasycore, blueshift render,
 film noir cityscape, exterior shot of an art deco shopping mall with a billboard above it, the billboard has a picture of Josh Brolin wearing a business suit on it
 photoreal render of the white smoke dragon egg with luminous core, presented nicely, rendered in octane, realistic, film grain, 35mm, 1600 ISO, Sony a7riv
 male steampunk Vampire in german military uniform and long black hair, dark style, in the woods,
 6 hands, goth, skeleton, buildings, bird
-Hailee Steinfeld cavegirl
 anime fantasy game cover art, 2D drawing, simple colors
 A very dark cave + green crosses that float + a white arch at the bottom of the cave + filmed by Ridley scott + grain on the lens + very detailed + realistic
 male scarry Vampire in german military uniform and long black hair, dark style, in the woods,
 the eye in the center of the sun, concentric rings around the sun, center frame, light shining from the sun into the void, strong, bold, symetrical, neon, baroque, rococco, tarot, marc simonetti, paul pope, peter mohrbacher, brom, insanely detailed, intricate ink illustration, prismatic holographic ink
 style of metal gear solid and Yoji Shinkawa and Maciej Kuciara
-a cat riding ontop of a duck
 a relaxed blonde girl, highly detailed, character concept art, handsome, perfect proportions, perfect face, perfect eyes
 group photograph of the cast of friends as sith lords, lightsabers, fierce, vivid emotion, symmetric circular iris, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
-the color orange
 portrait of a skeleton made out of paper
 a photorealistic white livingroom with design chair and wooden floor
 perfect human male body, realistic, 4k
@@ -794,38 +610,27 @@ Beautiful woman by Edwin georgi
 hands grabbing all kinds of orange coffee cups with black coffee seamless pattern drawing
 Cinematic ultrawide style ,Two realistic and ZOMBIES GIRLS dancing on the dancefloor in the discoteque,SAD, Ultra Realist,No Blur,Autofocus,RBG color , old RPG,Fantasy, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k technicolor ultra realistic, ultra detailed, ultra quality, unreal engine, lumen, 3d, 4d, 8k,
 Bohemian jungle at night, neon, surreal, illuminated, 8K
-red
 a relaxed girl, highly detailed, character concept art, handsome, perfect proportions, perfect face, perfect eyes
 beautiful post apocalyptic city with overgrown plants and trailing plants in the sun
 /imagine prompt: We are brought to the world to look at our history. Our life is something that should be a dialogue between the self in us and our initiatory truth, but now I don't want to talk about this with me, dreaming, etching, watercolor
 urban herbarium photorealistic berlin
-a nightmare inside of a psychedelic dream, a person with a cracked head displaying a dmt dream inside of another dream, lovecraftian horror, art nouveau, intricate details, super realistic, hyper-realistic, 8k resolution. intricate, passionate, detailed, octane render, cinematic render, unreal engine 5, cinematic, extremely detailed, surreal, 8k, hyper realistic
-sgt pepper surfing on the moon
-a boat
 Mictlantecuhtli, red, gold, malachite, data mosh, 8k,
 retro dark vintage sci-fi : : dark 2D matte gouache illustration : : dark cerebral droid overlord of the robotic hive mind
-Rick and morty
 a realistic scenic alien invasion into a 1920s New York filmed by Stanley Kubrick with grain on the lens
-BEETLE KNIGHT
 the entrance to a city in a rainforest, overgrown lush plants, atmospheric, cinematic, by studio ghibli
 Odin, Norse god of the sky, Allfather, symmerical face, eye patch on one eye, muscular body, warrior god, full body character concept art, costume design, illustration, symmetrical face and body, single face, oil painting, intricate complexity, rule of thirds, face by Artgerm, , dramatic lighting
 consciousness flowing in and out of the Universe like a shoelace through an impossibly large shoe
 old map of futuristic civilisation under water next to the Tenerife and Gran Canary islands
 a old dusty study room, with shelves of books, desk, telescope by the window
 A Mayan Warriror, male, battle hardened, fierce, portrait, fantasy atmosphere, mystical, magical aesthetics, illustration, by WLOP,
-amy rose cavegirl
 lonely astronaut standing at the edge of the huge crater, meteorite craters, lens flares, stars, galaxy, cinematic, dramatic lighting, trending on artstation
-rat king
 black child listening to ghosts
 classic film noir scene, black and white, Kristen Stewart as Elizabeth from Bioshock Infinite Burial at Sea DLC as Hildy Johnson as Amanda Seyfried as Marlene Deitrich as clara bow, menacing malicious grin, smug, backlit, devious, sarcastic expression, eyeshadow, backlit, intense gaze, eyeshadow, smudged lipstick, sinister satisfaction, psychotic smile, holding a knife, watercolor, dark deco, chiarascuro, pop art nouveau, very big eyes, fritz lang metropolis poster lighting, fashion study, medium shot, waist shot, scientist, labcoat, laboratory, experiments, inventor, genius
 naruto rag doll made out of yarn, artstation, photorealistic, cute, kawaii, rendered by octane, full body, moody, 8k
 snowy landscape lit up by the northern lights, trees, glow, ethereal, stars, night sky, peaceful mood, vibrant colors, national geographic, hyper realistic, cinematic, Weta digital, octane render, unreal engine 5,
-watermark
 young boy holding pistol, dark eastblock brutalist street eastern europe, analogue old photography, 8k, los angeles valley, ultra realistic
 Alldimensional Multiverse 4k have never beheld element, which is waterfall on the campaign is to shot, volumetric lighting himself As if beautiful, playful smile, SCP-4246-1 Type B WLOP by Yaoy of several agents Diya
-a Martian landscape
 a colony of giant isometric midnight blue silk cloth with gold embellishments blowing in the wind living in a massive hidden thriving underground ecosystem with many types of otherworldly structures flora and fauna, style of james jean, cold color palette, atmospheric perspective, lush, humid, mysterious, secret, magical, futuristic
-cute tabby kitty, illustrated
 photograph of close up of stoic latino male emerging from smoke with debris all around them in the style of jonathan mannion, wes anderson, david fincher, campbell addy, rosie matheson, vicky grout, stanley kubrick, insanely detailed, rule of thirds, symmetrical, golden ratio, + ultra realstic + high details + ornate, trending on artstation, no blur , shot on film, kodak vision, wide angle, detailed and intricate, gouache painting, art nouvea, full body shot
 symmetrical realistic luxurious butterfly with smooth wings made of shining dazzling colorful moonstone unreal engine,8k,C4D
 A tall male teenager with orange and red hair swept to the left side of his face dressed in red orange and yellow robes holding a sword made out of fire surrounded buy darkness
@@ -846,7 +651,6 @@ architectural drawing of elvish futuristic castle
 Futuristic in the style of Similo brutalist concrete architecture, monumental amorphous organic structures, viscous and thick opaque black fluid, oil spill, heavy fog, gloomy, abyssal, morning light, no sun,extreme details 8k
 Golden elephant head, epic, hyper-realistic, portrait, octane render, dark background, 4k
 sci-fi brutalist monument, minimalist, metal, concrete, 3d, landscape, tarot card
-intricate colourfully painted carved Soapstone relief paneling, black and red light beige, shiny, dragons eye, feathes, demonic, abstract biomechanical tattoo design , insanly detailed , artstation, wallpaper
 shot of a girl with light pastel blonde hair standing in front of a window with a view of the city, symmetric circular iris, subtle glitter makeup, realistic glitter dust, celestial nose type, extremely defined philtrum, high cheekbones, slim jaw, big eyes, full glossy lips, lipgloss, reflection on window, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, cgsociety, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
 samurai male, black long hair and purple, fire theme, trending on Artstation, headshot, character concept, highly detailed
 underground temple, dark cavern with crystals, columns with ruins etched into them, ornate stone walls, hyper realistic
@@ -854,17 +658,14 @@ relaxed girl, highly detailed, character concept art, handsome, perfect proporti
 ghost dragon type Pokemon by Studio Ghibli and Game Freak
 adorable baby dinosaur in a basket full of flowers
 goddess of flowers, blue backdrop, divine
-Album cover art
 an owl in a trench coat, studio photo, full body
 beautiful dieselpunk room, modern design,Vincent callebaut, figures, urban design, fantastic, dieselpunk, atmospheric lighting dieselpunkin artstation, dieselpunk in DeviantArt architectural key art, wide angle
-time is a looping circle
 Anime-style drawing of a boy with dark-red hair repairing a robot at night
 a landscape of aerial view of a beach in differents highs floor layer with transparent iridescent giant water waves, daylight with highlights, translucent iridescent wave colors, transparency, translucent, clean image, octane render, pure colors, soft render, soft image, very clean, perfect render,
 woman riding a graceful birdlike creature high above a river and waterfall surrounded by tall karst peaks, surrealist, fantasy; by Moebius - @Moebym
 Abstract geometric pattern with geometric shapes. 80s retro futurism style. Vector illustration background.
 Female with crown on head and long flowing dress, sitting on a throne, black tones, Art Nouveau Tarot Card style ochre tones, Black paper with detailed line work, gold leaf boarders, Mandelbulb Fractal, Exquisite detail, bright green details, hyper detailed, intricate ink illustration, cinematic lighting, rule of thirds, golden ratio
 elden ring samurai, dark kimono, katana, oni mask, drawing, intricate detail, lush forest, epic, scary, dark fantasy
-city in the clouds
 a dramatic scene in the mountain with a gothic castle with knighs in the fog
 a majestic meditation cabin in urban Tokyo, sustainable, nature, peaceful, mindfulness
 Bridge over water on fire, cyberpunk, octane rendered, 4k, matte
@@ -873,7 +674,6 @@ p-funk the band clad in elaborate futuristic costumes accompanied by dancers and
 spider baby, borderlands, acid, zipper mouth, mechanical, bio-luminescent, glow in the dark, toxic, mutated, Redshift render, cgi, 3D render, epic scene, studio lighting, ultra-realistic, photo-bash, 8k, post-processing, rendered in octane
 magical glen, Zhangjiajie style, river, fairy, fireflies
 rubix cube becoming a liquid, 2d,
-Cute cat in space
 Angelic knight full body portrait rune on his armor and holding a very long ultra sword and a shotgun, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
 a giant angry carnivorous mole destroying a city
 Satanic Snow Globe, product shot, physically based render
@@ -887,14 +687,10 @@ create a cartoon style handsome male artist + eye glasses + green eyes + dark br
 a full body shot of a beautiful witch posing with a big chest, a purple skirt, purple hat, grey pantyhose, black tanktop and black chelsea boots, a confident face, symmetrical face, symmetrical eyes, red lips
 tree, flat design, holosomnia art, vivid colours, extremely colourful, magical, 2d art
 pagans and witches in an enchanted glowing forest, ghibli forest spirits
-Dripping Electric Dragon Band
-A glass of wine
 woman masquerade, fancy, elegant, illuminated manuscript, dark geometric, gradient, rainbow, desaturated, dark, clean lines, italo-byzantine, charlie bowater, wylie beckert
-lava lamp painting
 medium format camera photo of a woman wearing a dress with revealing cutouts , sensuous expression, perfect face with stunning eye makeup, anime style, 4k UHD FHD 8k, establishing shot, urban fantasy cinematic, super detailed, vfx, post processing, hyperdetailed, high resolution, Charlie Bowater, insanely detailed and intricate, colorful, rule of thirds
 goblin snake, imp, troll, gremlin, ogre, hobgoblin, pixies, mechanical, robot, Redshift render, cgi, 3D render, epic scene, studio lighting, ultra-realistic, photo-bash, 8k, post-processing, rendered in octane
 Character concept art, Old male Gnome, artificer, engineer, dual pistols
-Hindu mythology
 Hailee Steinfeld in the style of Boris Vallejo
 sketch portrait of the head of a hispanic girl with short black hair, cute, beautiful, healthy, lean face, inked manga by Charlie Bowater and WLOP
 futuristic long jetfighter like racing vehicles with short wings on a racetrack in a utopian Tokyo
@@ -906,26 +702,21 @@ Zen Garden soup, food shot, physically based render
 anime of Gigantic sequoia forest,surrealism, 8K, epic composition, film, octane rendering, art station photography, 16K resolution, illusion engine,--ar 2:3
 landscape, conceptartist, 2D digital art, photoshop paint, environment, pirate, wreck, piratesofthecaribbean, treasure, monkeyisland like style, seaofthieves like style, ship, pirateslife, pirateship, blackpearl, wreck, island, digitalart, videogame, artistsoninstagram
 anthro capybara in cultist robes, dappled sunlight, symmetrical, character design, serene
-An Amazon Shipping Station
 1940s peacock feather evening dress
 Mineski Masters Esports, building at mountain, feudal japan, ultra-detailed, hyper-realistic octane render, cinematographic, epic, wow, photo-bash, artstation trend,post-production,
 cyberounk tokyo city, space ship, samurai, aliens, ukiyo-e, by Hokusai, data mosh, glitch, 4k
-symmetrical flower butterfly
 Dark haired male sorcerer in green clothes who is using purple magic and has a pet snake
 Mike Hoffman style human male with short hair and beard with scar on face by jeremy mann and greg rutkowski, Emanuele Taglietti color scheme
 Steven Sielberg Movie like , In front a realistic and creepy ZOMBIE,in a Park,taking A SELfie with the left hand
 Flamenco dancer in the style of Mary Blair
-demon vintage computer photorealistic 4k 8k extremely detailed
 gunslinger steampunk cowboy standing in the desert sunset, old west, cinematic, high detail, 8K, hyper realistic by Craig Mullins, howard pyle, herbert james draper
 the council of nicaea, 325 A.D., realistic, photorealistic, cinematic, high resolution,
 Full body, young Asian man, with a symmetrical face, foxy eyes, and long black loose hair in a red male hanfu attire surrounded by Chinese lanterns and Japanese Maple trees, hyperrealistic
 a slim steampunk colibri bird, majestic, photoreal, intricate, decorated, very detailed, 8k, arnold render—version 3
 interior of a greenhouse with people in the backdrop
-A stunning interpretation of valentina, female, snake, fashion photography, highly detailed headpiece, intricate design, golden ratio, ornate ,photo by Peter Mohrbacher, karol bak, photoshoot, studio background, wideshot, fullbody,horror, creepy, surreal, hyperrealistic, ominous, haunting, SSS, photorealistic, camera shot, photo, cinematic,octane render, cgsociety, 8K
 anime style portrait of Kristen Stewart cosplaying as Rei Ayanami, looking leftward, closeup on face, art deco, big eyes, eyeshadow, art nouveau pixiv
 anime style portrait of Emma Watson cosplaying as Asuka Langley, looking leftward, fierce, determined, confident, badass, watercolors, closeup on face, twintail hairstyle, pixiv
 Amy Rose in pink shorts with full lips in the style of Boris Vallejo
-computer love
 old Victorian mansion covered in ivy
 Portrait of a mid-aged cute fat Japanese man sitting down in front of a Japanese shrine, extreme realistic, brown round eyes, clear makeup, clean black hair, round face, dry skin, clear skin, warrior body,intricate, eyes open in extreme detail, volumetric fog, dusk, Japanese lighted lanturn, dramatic, atmospheric, vray, global illumination, contact, ominous, 8k octane render, cinematic, hyper detailed, micro details, insanely detailed, trending on artstation, stylize 25000,
 floral-pattern vintage-wallpaper, dramatic lighting shadows, detailed illustration, Dan Mumford, Alphonse mucha, hyper realistic, photorealistic, extremely detailed fur, octane render, 8k, intricate details
@@ -933,22 +724,18 @@ long-legged minion playing the piano in the future
 anime style portrait of Emma Watson cosplaying as Asuka Langley, looking leftward, fierce, determined, confident, badass, watercolors, closeup on face, twintail hairstyle, style of Yoji Shinkawa, pixiv
 Inside the old bookstore, a girl in a sailor's uniform is flipping through books between the many tall shelves, the dim table lamps on the counter shine on the sleepy old shopkeeper at the back, and the light of the setting sun comes in through the doorway
 film noir gouache midnight rain lights
-pure cinema
 realistic Saphir armor knight with shiny swor rendered by unreal engine 5
-demon in the vintage computer, kawaii illustration
 hooded fantasy male stood in a snowy forest, golden magic threads circling outstretched hands, powerful, Neo-Baroque Q 0.5
 Only One jellyfish, extralong tentacles, cosmic, deep black background
 , summer feeling, studio ghibli
 massive ornately carved Shangri-la temple door at the end of stone steps, Sakura blossoms, magical atmosphere, by Renato muccillo and Andreas Rocha, trending on artstation + blur, blurry, dof
 bubbling purple soup with eyeballs in a bowl, hearthstone, magical aura
 rubix cube turning into a liquid, 2d,
-Fence in the Meadow
 anime girl clear face and vivid eyes ultra detailed intricate hairs design delicate lips exquisite nose pixiv style 8k
 classic film noir scene, Jena Malone as sultry glamourous femme fatale, fashion study, vest and necktie, chiarascuro, backlit, rim lighting, very long straight hair, sarcastic smirk, wearing a beret, intense gaze, menacing malicious grin, intimidating, confident, dominant, sarcastic, cigarette smoke in the air, dismissive, big very dark eyeshadow, Fritz Lang metropolis poster lighting, black and white, cruel thin lips, big bright eyes, malicious intent, devious psychotic expression, sharp jawline, smudged lipstick, black and white, high contrast, sitting on a crate
 rainbow neon cyberpunk robotcop, raytracing, concept art
 Hasselblad X1D portrait, b&amp;w
 /imagine hyperactive monster, hairy fur, manic anxious expression + gittery + vibrant, ultra wide shot + VFX + hyper detailed + concept art + cinematic + octane render
-feathered dragon serpent
 Egyptian ancient Karnak Temple Complex landscape, comprises a vast mix of decayed temples, pylons, chapels volumetric rays, cinematic lighting
 rainbow butterfly made from tissue paper
 African American male with medium Length dreadlocks with his redhead beautiful pale skinned Caucasian female friend
@@ -978,40 +765,29 @@ An old pirate tavern, rustic, physically based render, substance painter
 zarathustra in Lost Jerusalem defeated by merkava
 highly detail architectural object made of corroded plastic, concrete and wires in front of camera lens
 close up of a samurai eating ramen in a cyberpunk city at night in the rain, realistic, cinematic, rendered, cgi
-map of a feudal Japan village
 wooden tunnel leading to a futuristic world in the style of Ridley Scott reds and blacks ,
 furry cat smile and posing in disney style
 &lt; deep sea environment with sun rays, caustics, scene focus and main element is an underwater nuclear Privateer Corsair pirate ship flying flags, undersea Mariana Trench, cyberpunk, detail, fantasy art, multiple sea creatures swimming alongside, mood, glow, Laurie Greasley art style, studio Ghibli color palette, backlit, trending on artstation, 8k,
 /imagine fractal wallpaper, pieces of rose gold, warm color scheme, light smoke, macabre
 triporteur bike in front of a sunny beach with kids playing around south of france realistic
 three huge pillars of light in an epic minimalistic alien lobby
-mecha killer pet rock of doom
-a hydromancer conjuring a blue mechanical octopus swarm exiting a pool of cerulean black water filled with skinny fungus trees with yellow moss owls, cinematic, 35mm, epic, beksinski, cinematic lighting, insanely detailed and intricate, golden ratio, hypermaximalist, elegant, ornate, luxury, elite, horror, creepy, ominous, haunting, matte painting, cinematic, zdzisław beksiński, james jean, mark rothko, hans bellmer , cinematic scene, beautiful, artstation trending, epic scene, 8K resolution
 classic film noir scene, Jena Malone as Kristen Stewart as femme fatale, high contrast, black and white, backlighting, cigarette smoke in room
 young military woman in swimsuit in the quake engine VGA graphics
-mono
 synthwaver and i am on my knees looking for the answer
 beautiful japanese wooden house by a pond by Miyazaki, in the style of studio ghibli, flowers, water lillies, royal garden, lush green bushes
 heroine in elven armour, beautiful young face, with a slight smile and determined blue eyes.
 how does it feel like to suffer from Asperger syndrome
 upside-down and exploding minaret, hitting it’s top to the ground of a green park with buildings of Istanbul in the background sky, demolishing the trees
 a raider-scavenger tiger-man tabaxi wearing light scrap-armor, posing sadly in sunny and hot apocalyptic forest, character painting by craig mullins
-an iridescent black cloaked shrouded hooded nazgul ringwraith melting into a tar pit swamp made of shiny viscous latex slime, hyper detailed, photorealistic, ominous, evil, character design, trending on artstation, 3d model, 4k, octane render
 giant underwater music scene concert of Donald Glover on the backdrop of a sunken ships corals fishes
-pantheon
 female, Halfling, Grey bowler hat
 the beekeeper, pencil drawing, creepy
-McHanzo getting married
 barbarian girl, in a swamp, red hair, fantasy
-Steampunk robocop
 skin and bones of wolf horse cow wild zoomorphic creature milk injured wounded
-panda
 necron-inspired battle sister, neon green eyes, dark souls, killzone, battlefield 3, violence and brutality, pixiv, studio trigger, studio ghibli, portrait, rule of thirds, intricate complexity in the style of Artgerm and Ilya Kuvshinov
 Science Text Book, College text book border designs, geometry, Cyberpunk Megacity, Metro Tokyo, Cyberized, giant masses of people praying to a supernova in the sky, colorful, by Alphonse Mucha, by Greg Rutkowski, minimalist, trending on artstation in the style of Ratchet and Clank
 cargo bike in front of a sunny beach with kids playing around south of france watercolor
 , portrait, intricate detail, smile
-SOL DOMINION
-killa tarkov minion
 rosicrucian, vintage photo, victorian, bw, atmospheric,
 vintage computer cyberpunk girl illustration kawaii
 Danny Brown powering up in the style of Dragon Ball Super anime, going Super Saiyan Rosé, anime key frame, laughing, intense crackling pink energy aura, like Goku Black, by Tatsuya Nagamine, designed by Akira Toriyama
@@ -1021,31 +797,22 @@ classic film noir scene, Jena Malone as sultry glamourous femme fatale, fashion 
 goddess of fire, purple backdrop, divine
 wide shot of a young woman in a business look by issay Miyake and a kitsune face mask
 portrait by Jeremy Lipking and John Duncan
-a supervillain's secret evil lair
 colliding planets. gorgeous lighting. cinematic. sky is on fire. by alphonse mucha and daniyar kdyrov.
 taj hotel map, 1900, indian architecture, asian inspired, isometric infographic in the style of Wes Anderson
-dreamy 80s hacker dreams
 green gas monster in the style of pixar
-mecha muskrat character
-&lt;
 witchdoctor, ritual skull with colorful feathers in mask, dark, torch lit, spirits coming out of campfire, neckalce made of skulls, Redshift render, cgi, 3D render, epic scene, studio lighting, ultra-realistic, photo-bash, 8k, post-processing, rendered in octane
 a still of the band Abba as Muppets performing on stage, ultra realistic details, 8k
 cinematic lighting, hyper-detailed, cgsociety, 8k, high resolution, in the style of Charlie Bowater, Tom Bagshaw, single face, symmetrical, headshot photograph, insanely detailed and intricate, beautiful, elegant, watercolor, cinematic, portrait, Raphaelite, headroom, artstation, Pierre-Auguste Renoir
 vintage, realistic photograph of Chris Pratt as a great depression-era construction site worker. Wearing dirty overalls. Unwashed face. Black and white. Emotional, weary
 engineering sketches schematics of alien weapons with alien language, hyper realistic, octane render,
-Dragonmancer
-my eye is an island
 natural lighting, sunset, symmetrical, trending on Artstation, cgsociety, environmental art, cinematic, concept art, illustration,
 a cat in the style of Yoji Shinkawa and Vincent Van Gogh
 vintage computer posessed, extremely detailed, realistic, 4k 8k cyber
 beautiful portrait of an anime boy, black and red messy hair, strong jaw, in cloth armor, symmetrical face, symmetrical eyes, two identical symmetrical eyes, portrait , happy, inspired by Pokemon, in the style of pokemon beautiful girl, artstation, trending on artstation, smooth skin, FHD,
-oil painting study of an ear
 waist up photograph portrait of a young woman as billie piper wearing a pikachu hoodie, hoodie with pikachu ears and face, 70mm lens, outdoors lighting, vivid emotion, symmetric circular iris, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
 an old rustic wooden floor with morning light streaming in a window
-DreamPunk
 Magical realm City of Lynnbrook
 Badass Troll Queen with Grey Magenta skin and short whiskers, dripping clear glossy slime, synthcore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
-a guy that is persistent
 secluded pond surrounded by lush vegetation
 rabbits and pills levitating in deep space with planets and stars 16:9 --s 20000
 anime of a intimidating huge anime red and yellow slime creature with sharp teeth, scary, absorbing humans, oozing slime, sludge, happy, inspired by Pokemon, in the style of pokemon
@@ -1056,17 +823,12 @@ classic film noir scene, Jena Malone as sultry glamourous femme fatale, fashion 
 lightning mage, male, wide jaw, stubble beard, short hair, dark hood, beautiful, wide hazel eyes, clear face, storm background, detailed, dramatic lighting, cinematic, 24mm, glowing, raytracing, dramatic, ominous, realistic, portrait
 ****ornate stone archway leading to a futuristic world in the style of Ridley Scott ,
 ahri league of legends face, pretty, portrait, realistic, realistic lighting, cosplay, photography
-a photorealistic monster, out from an 80's fantasy horror movie
 Emperor of the universe in heroic pose, dressed like emperor napoleon retro futuristic, red cape, white clothes with golden details and shiny golden astronaut helmet, in a brutalist throne hall, and space wall window like a royal spaceship, unreal engine ultra-realistic textures 8k
 vintage computer construction, electronics walls
-Tabby cat in an alleyway
-comparny logo
-the time machine
 classic film noir scene, Jena Malone as sultry glamourous femme fatale, fashion study, vest and tie, chiarascuro, backlit, long straight hair, sarcastic smirk, intense gaze, menacing malicious grin, intimidating, confident, dominant, sarcastic, cigarette smoke in the air, dismissive, eyeshadow, Fritz Lang metropolis poster lighting, black and white, cruel thin lips, big eyes, malicious intent, devious psychotic expression, sharp jawline, sitting on a crate
 there are endless possibilities
 cute furry frog, hearthstone, creature, wayne reynolds, creature design, seb mckinnon
 gala party on upper New York hyperrealism, trending on artstation, Charlie Bowater, WLOP, detailed, intricate, elegant, vfx, postprocessing, octane render, 8k
-demonic paladin
 angel of death pondering his next move, darkfantasy, forest, moonlight, intricate details, kimono
 coffee cake with coffee beans, unreal engine render, hyperrealistic, detailed, photorealistic, plate
 a dungeons and dragons character portrait of a dragonborn dragon person with a white background in the style of william oxer
@@ -1075,7 +837,6 @@ a male college student, with blonde hair, sunglasses, and a open red jacket
 blueprint of a steampunk battleship
 the future of physics by Francois Schuiten
 portrait, realistic, male malkavian
-bulbasaur
 dark stray dog sitting on the sea shore, seen from behind, looking at the sea, calm atmosphere, rough sea, slightly foggy, a bit sad
 classic film noir scene, Jena Malone as sultry glamourous femme fatale, fashion study, vest and necktie, chiarascuro, backlit, long straight hair, sarcastic smirk, intense gaze, menacing malicious grin, intimidating, confident, dominant, sarcastic, cigarette smoke in the air, dismissive, big racoon eyeshadow, Fritz Lang metropolis poster lighting, black and white, cruel thin lips, big eyes, malicious intent, devious psychotic expression, sharp jawline, black and white, high contrast, sitting on a crate
 portrait girl, white hair, long hair, red eyes, pretty, cosplay, artstation, realistic, realistic lighting, photography, face
@@ -1091,7 +852,6 @@ ambrosia by chris sukut, mountains, food of the gods, magical place, epic, 8k re
 classic film noir scene, Jena Malone as sultry femme fatale, fashion study, white button-up shirt and necktie, chiarascuro, backlit, long straight hair, black and white, sitting on a crate
 art nouveau painting of a insanely detailed mechanical owl
 Terrifying, breathtaking and haunting mystical experience of perfect mythological sacred goddess apparition with piercing eyes and cold sneer on beach at night revealing the ultimate secret of the cosmos, Associated Press photo
-tarot card
 classic film noir scene, Jena Malone as sultry femme fatale, fashion study, white button-up vest and bowtie, chiarascuro, backlit, long straight hair, sarcastic smirk, intense gaze, black and white, sitting on a crate
 production cyberpunk car, physically based render
 young female, blonde hair, godess with a guitar, dramatic lights
@@ -1103,21 +863,16 @@ a clear glass torus filled with eyeballs, octane render, ray trace, subsurface s
 Mage of midnight rain, by Masashi Kishimoto
 Mike Hoffman style human ranger male like Sean Bean by jeremy mann and greg rutkowski, Emanuele Taglietti color scheme
 Badass Troll Queen with Charcoal Royal Blue skin and long whiskers, dripping clear glossy slime, synthcore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
-sunset in steven universe
-isometric rubix cube
 classic film noir scene, Jena Malone as sultry femme fatale, fashion study, white button-up vest and bowtie, chiarascuro, backlit, long straight hair, sarcastic smirk, intense gaze, menacing malicious grin, intimidating, confident, dominant, sarcastic, cigarette smoke in the air, dismissive, eyeshadow, Fritz Lang metropolis poster lighting, black and white, sitting on a crate
 classic film noir scene, Jena Malone as sultry femme fatale, fashion study, vest and tie, chiarascuro, backlit, long straight hair, sarcastic smirk, intense gaze, menacing malicious grin, intimidating, confident, dominant, sarcastic, cigarette smoke in the air, dismissive, eyeshadow, Fritz Lang metropolis poster lighting, black and white, sitting on a crate
 highly detailed realistic render of a futuristic sci fi organic African city full of greenery, people and wild animals and spaceships flying in the sky view from above birds eye view concept art trending in ArtStation in the style of Guillermo Lorca and Alphonse Mucha
 Man with beard sitting on a chair inside a medieval cell. He is making alcohol with a wooden homemade distilling machine. An arched window let godrays illuminate the room. Serene, sad, nostalgic. Rembrandt.
-The Venture Bros red death
 burlesque show in the quake engine VGA graphics
 rubix cube melting into the ground, 2d,
 Badass Troll Queen with Grey Blue skin and short whiskers, dripping clear glossy slime, synthcore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
 Facade of a modernist glass home. Emotional architecture. Moss covered rock green roof
 dragon’s biomechanical ribcage, decomposition, detailed and intricate, gothic ultra realistic, trending in artstation, haunting, anatomy, lovecraftian dramatic atmosphere light from above, volumetric fog, unreal engine, cinematic, Kris Kuksi , Nekroxiii style, - - quality 2
 A Beholder from Dungeons and Dragons flying ominously, ominous, render in Octane
-steampunk technomancer
-Princess Whats-Her-Name
 BRUH MOMENT, ARE, GAAND MARANA, GOTI GAYAB
 observation room interior, huge wall of filing boxes, stainless steel panelling, fluorescent lights, gurney, 2 people silhouetted, cinematic, dramatic lighting, ultra wide angle, one-point perspective, straight lines, ultra detailed,moody, clinical, dystopian
 thoughtful young girl female sitting beautiful butterfly wings symmetric rule of thirds endless fractal existential horrific cinematic rain madness celestial 4k high resolution dramatic robotic mechanical cyberpunk wings pink
@@ -1125,27 +880,18 @@ resplendant cybernetic massive french ogre peasant with a huge square jaw and a 
 biomorphic portrait photograph of a tardigrade, in the style of Kanjuro, tardigrade, insanely detailed and intricate, golden ratio, realistic 3D, hyper-realistic, super detailed, realistic octane render, 8K, fashion photography, hard light
 black and white x-ray film photography, halo of light, high grain, psychiatric hospital liminal space
 beautiful woman in futuristic clothing and robes, high detail photorealistic face photorealism post effects detailed clothing
-my 48 birthday happy cosy
 A female cleric in tattered red robes reclining on a sofa near a glass coffee table in a cylindrical room
 lamborghini LM002 suv , drive in the deserts with huge worms survivors postapocalypse with steampunk , vray lighting, lens flare , ultra realistic
 cute medusa woman in a copper swimsuit taken with DSLR cinematic atmospheric
 an ancient Chinese martial artist : : in the style of h.r. giger
 victorian steampunk soldiers fight rioters on the streets of paris oil painting very detailed; 19th century; cinematic, highly detailed, depth of field, octane render,
 artistic representation of creativity
-vibe, 8k, octane render
-self love
-goddess of death
 humanity trying to discover the purpose of existence
 intertwined wool felt strings on the ground in shades of green
-shriek
-kids playing in water
 Yoji Shinkawa style, halo3, haloCE, red visor
 2B and 9S, camera facing back, standing on a beach during sunset, Photo realistic
-the weight of rain
 symmetrical surreal baroque painting detail of octopus squid tentacles reflective mirror motherboard chip circuit honeycomb beehive holes eyes embryos white xenomorph sorayama metallic spiky spine tentacles ribs teeth muscle tissue embryo white plastic translucent meat made of glass
 Coco Chanel portrait by Wojtek Siudmak
-sun rise after nuclear winter
-A communist capital in fire
 insidious Jesus with goat horns inside cold dark bedroom.
 psychill, psybient album cover, in the style of sphongle and ott
 Middle aged man, who's lost everyone and everything, in a world taken by the darkness. His journey is one of failure. As he sits atop a mountain, alone, looking out to the vast land ahead, he once again picks up his blade to finish what he started. The gauntlet with colored crystals on his arm glow.
@@ -1157,26 +903,18 @@ golden sword laid on a wood table
 a marathon running steampunk robot running boston marathon
 retro abstract poster for an 80s electronic music album
 winter in the mountains of ancient china, fantasy, night, glowing lights
-Pamukkale after demon invasion, imps and hell creatures living around photorealistic
-when you light burns out
-photorealistic angry Pikachu
 Skeleton figure stood over a coffin inside a crypt candlelight 8k hyper realistic
-The Not So Fun Fair
 A black and white image of an Old thin Cyberpunk Orc in a Trenchcoat with a Mohawk
-a hyper detailed 4K octane render of a nightmarish cavern, full of monsters and treasure, with human anatomy stuck in the walls, in the style of cosmic horror, DOOM, Lord of the rings, elden ring, the Color of space, deep depth of field, disco diffusion
 gamla stan in Stockholm with sci-fi elements and lots of hanging cables
 rainbow repeating pattern glossy smooth vibrant popart style 8k hd
 the Big Bang; cosmic trippy hallucinations LSD psychedelic colors
-acid trip
 doner kebab party in kitchen temple
 Dark Long haired male Necromancer green summoning circle raising undead skeletons with green glowing eyes
 security camera footage of the bigfoot eating a cake at midnight
 new iamamiwhoami album cover, title that says "Mandragora officinarum", themed around mythology, illustration, medieval art style, natural colours
-W40k techpriest portrait
 caption american kissing himself
 a rat mad scientist in his lab, creating the ultimate cheese
 persona Joker standing menacingly by sukeart in Risograph
-Kirik
 peaceful transcendent human civilization by Noah-Bradley
 Georges Lucas drinking wine in a field with yoda
 beauty, beautiful, child swingset, sliding board, playground, happy mood, laughter, smiling, summer, crisp, hdri, realistic, wide, 16K
@@ -1184,12 +922,9 @@ a planet inside a plastic bag very colorful
 baroque framing, wolf with a crown of flowers, golden old city, blooming, night, photorealistic, cinematics
 an endless ocean on fire raining neon red light in the sky behind the clouds cinematic lighting polaroid photo
 galaxy reflected in river in desert, ancient boat
-handsome dark angel
 raiden from Metal Gear Rising: Revengance smoking a joint, artstation, photorealistic, real life, Vitaly Bulgarov
 Art Deco robot women in a green field with multi colored flowers
 a detailed human-robot with mostly human features. 4k photo. realistic. in a basement laboratory.
-Saudi family
-fire, cyborg, end of the world
 beatutiful face in forground. flying angel with wings. New York City in background. forced perspective. beatutiful face. beatutiful face. beatutiful face.
 painger stands in front of canvas, painting of self melting into fractal geometry, realistic, mystic
 master oogway super realistic 4K Fan art
@@ -1197,11 +932,9 @@ a scifi fantasy war between two alien robot races of androids. Octane render. Ep
 futuristic intricate obsidian skull with inlaid cyberpunk circuitry, titanium, diamond, carved white marble, mechanical exoskeleton, smooth bronze solid surface + obsidian and gold inlay, ivory rococo, super-detailed, insane detailing, high-end, ornate, elegant, luxurious, dramatic lighting, hypermaximal, golden ratio, photorealistic, octane reproduction
 minimalistic interior design, Contemporary inspiration, day lighting, Rendered in corona 3dmax,Distinguishing features: Symmetrical, columns, crown moulding, detailed woodwork, Sony a1,highlydetailed cinematic but relaxing lights, hyper realistic, stunning details, unreal engine 5, 3D realistic, wallpaper
 4 choc chip cookies in a horizontal row, with chocolate eyes to look like faces
-Arcane Sword
 endless universe, wireframe, grid, genesis of planets, resonation, vibrance, worldly
 chronomancer, rewinding time, mangling the threads of fate, vibrant, iridescent, ethereal
 a spider with neon colors and a glowing glittering web
-OBEY poster
 a movie poster of cthulhu in 3d riding a cycle + Unreal Engine render + Vignette + Dark + fog
 neon wax liquid dripping from a laboratory work table
 big glass crystal spoon in a cave, futuristic, sci-fi, detailed, artstation, dramatic light
@@ -1211,9 +944,7 @@ young Greek medusa woman in a copper swimsuit
 people on a backrounds with dark tree and night sky with rose planet in shadow and bones universe
 clear glass ducky full of rainbow swirls, unreal engine
 classic film noir scene, Jena Malone as sultry femme fatale, fashion study, white button-up shirt and necktie, chiarascuro, black and white, sitting on a crate
-dante inferno, alchemy
 a future town made of bubblegum
-my dog "Tanner"
 comic book sketch, epic composition, dramatic, style of arthur adams, marc silvestri, jim lee, joe madureira, sean gordon murphy, matteo scalera, sketch drawing. black and white ink. pencil sketch. close up. crying woman in hospital bed. close up on face, pain.
 rainy day on the sea shore, man standing under an umbrella, dark brown coat, seen from behind, looking at the sea, hand in pocket, calm athmosphere, slightly foggy, a bit sad
 two dinosaurs in flightsuit fighting in space
@@ -1223,94 +954,64 @@ native american pattern in the style of folk art
 red eyes blue hair martial artist girl wearing a black kimono fighting, monastery, in the background mountains, forest, night sky, anime style 4k
 Lovecraftian landcape in the style of Thomas Kinkade, digital art
 trippy fluffy cat, blue theme, joint in mouth
-a bear playing in the sea
-angel fights with a demon at sea at night with shooting stars
 fractal forest dwellers looking at a mysterious object
 stage design, scenography, lighting design, apartment on stage, warm lighting, cinematic, atmospheric, dramatic, realistic
 a happy girl in a field of flowers with a long cape that looks like butterfly wings, beautiful face, green eyes, dark hair, fantasy, cinematic lighting, painting, Pierre Auguste Cot style, epic, a sense of wonder,
-Harley Quinn by kazuma kaneko
 medieval castle in a field with two moons in the sky during night, photorealistic, unreal engine render, detailed
 egyptian pyramid floating in space, galaxies, hieroglyphics, sacred geometry, metatron's cube, stars, polygons, 3d, shapes, nebula, extreme wide shot, rule of thirds, vibrant colors, octane render, cinematic, 8k
 princess girl, blonde, epic lighting, godlike, etheral, wings, fantasy
-squidward noir
 Unheard-of strangeness in the quantitative proportions of bulk and substance
 a dark fantasy forest of gigantic, ancient trees, covered in moss and glowing mushrooms, vines, fireflies, fog, moody lighting, mist, cinematic, studio ghibli, anime, award winning, critically acclaimed, 2D, dramatic lighting, fallen log, god rays
-CAT poster
 night club with lot of people, in sketch drawing style
 tardigrade cosmomancer at the reflecting pond of the universe creating worlds
-&lt; Infernal City, gates of hell, dark atmosphere, depression, decay, loneliness, apocalyptic, Brom and Vallejo hellish, skulls, Photoreal, Giger
 a still from beaker from the Muppets mixing chemicals in a labor. Fire and explosions, Humor , 8k,
 rubix cube melting into the ground, black background 2d,
-demon haunts vintage telephone, detailed, gritty
 lightning mage, male, wide jaw, stubble beard, short hair, dark hood, beautiful, clear face, storm background, detailed, dramatic lighting, cinematic, 24mm, glowing, raytracing, dramatic, ominous, realistic, portrait
-a psychedelic illustration of happy demons and aliens from outerspace standing on the street corner in the city and smoking cigarettes, in the style of Dan Mumford,
-bauhaus propaganda poster
 massive robot mech triming a tiny bonsai tree in a vast forest of the cosmos
 a happy girl in a field of flowers with a long cape that looks like butterfly wings, fantasy, cinematic lighting, painting, Pierre Auguste Cot style, epic, a sense of wonder,
 Environment = Anime Tokyo Street Curving to the Right, Street Connected from Right Side of Canvas, Crosswalks on Either Side of Street, Power-lines Along Left Side of Street, Varias Street Signs Along Street, Trees Along Left Side of Street, One Street Sign in Foreground of Image
-&lt; Dark God, art style pulp horror, in heavy ornate armor, long wavy black hair, extremely detailed, insanely detailed and intricate, high detail, concept art, by Clint Langley, artofsickness666, and Nekro XIII
 the beneficent Gods and Angels and Creators presenting the fire of truth to Man and Woman in the style of Wassily Kandinsky and Art Nouveau Alphonse Mucha
-bauhaus rocket movie poster
 abandoned M1A3 tank in ruined American city, collapsed world of 2044, limits to growth, post-apocalyptic, realistic, high quality, hyper detailed, very clear, premium, 8k stylize 1600--quality 2
 The liquid moon melts into a waterfall pouring down
 portrait of dana scully in goth emo scene makeup
 planet earth's sun gets swallowed up by a black hole, obliterating everything that gets caught into its gravitational pull, as seen from the surface of earth
 &lt; frankenstein portrait by Frazetta and Jamie Hewlett and Goyo Dominguez and Brom, higly detailed, octane render 4k
-unix network programming
 pagan Halloween costume, vintage photo, victoriana, bw, creepy, atmospheric, tarot card,
 a colorful and ambitious piece of graffiti art that is the almost as big as the side of a massive train car at dusk on a warm summer night, vaporwave color palette, amazing establishing shot, style of masamune shirow, style of brian sum, style of satoshi kon, style of peter mohrbacher
-hack the planet 80s
 grey wolf with snow in its fur, highly detailed, photorealism, 4k,
-a tiny universe that fits in a shell, nebula, galaxy, starts, planets
-OWLGOD
-goetian devil, desert, muted colors, weird perspective, cowboy outfit, dust, sandstorm, wild west, burning sun
 attractive girl made out of oily black fluid and plastic trash bags posing on the ground, black sand oilsand, smooth flowing extruding lines, dark background, 70mm, photographic, cinematic inspired by Lois Van Baarle and WLOP, high definition, low detail, unreal engine
-a psychadelic illustrat of happy demons and aliens from outer space standing on the street corner of a city smoking cigarettes by Dan Mumford,
-Ghosts in an old battlefield
 ornate stone archway leading to a futuristic world in the style of James Gurney, greens, reds and blues,
 a colorful and ambitious piece of graffiti art that is the size of a side of a massive train car at dusk on a warm summer night, vaporwave color palette, amazing establishing shot, style of masamune shirow, style of brian sum, style of satoshi kon, style of peter mohrbacher
 the man with no name, stranger in black, desert, sandstorm, crop circles, arid, alien atmosphere, volumetric lighting, weird west
 Terrifying, breathtaking and haunting mystical experience of perfect mythological sacred goddess apparition with wedding dress, skull, piercing eyes and cold sneer on beach at night revealing the ultimate secret of the cosmos, Associated Press photo
-Mid-Century Modernism poster
 portrait of dana scully in in ashley wood style
 movie poster for Pixar film titled, "Ancient"
-**&lt; rubix cube universe
 ancient god cthulhu dark cave cradle of filth
 first person sonic game in the quake engine VGA graphics
 ancient Labyrinth, incredible Epic Red Dragon opened its mouth and spat golden flames at us
 undead woman with long black hair in plate armor, red and blue surcoat, combat stance, wielding greatsword
-a pocket universe
 full body photograph portrait of David Tennant as doctor who, 70mm lens, Canon EOS 5D Mark IV, vivid emotion, symmetric circular iris, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face
 sharp photography of a beautiful anime girl
 beautiful caucasian woman in futuristic clothing and robes, high detail photorealistic face photorealism post effects detailed clothing 4k
-titan of industry and machine parts, mechanical colossus, biopunk, horror, epic shot
 the creation of adam if dna was based on a uranium backbone instead of posphate backbone,
 planet earth blossoming like a flower in a sea of stars
-The town of innsmouth, sanitarium on a distant hill, cinematic, clean lines, horror, eerie, epic scale, marc simonetti, paul pope, peter mohrbacher, brom, insanely detailed, like newburyport, intricate ink illustration, green, dark green and black ink
 metal slug trading card game, Pokemon card, Yu GI oh cards, magic the gathering, stats, high detail scan
 1960s planet of the apes poster
 Mariah Carey in the style of monet
 I’ve been so disappointed to find I care you’ve someone new
-dark purple color
 leutschenbach greenhouse in the stlye of Christian Kerez and studio ghibli
 nebula of a gorilla in a banana suit
 &lt; cyberpunk terraced houses, raining, man and child in foreground, in the style of Simon Stalenhag
 a modern cabin in the woods at the banks of a river in the Ozarks, realistic style, pine trees, stone cliffs, cinematic lighting
 A massive magical fantasy futuristic city of emerald green on Venus full of lush vegetation for Spock sake
 machine god head, symmetrical, medium shot, electric socket, hacker glow, cyberpunk, neonwave, longing
-water girl
 hermetic order of the golden dawn, vintage photo, victoriana, bw, creepy, atmospheric,
 brutal detailed 4k render sketch of wrist watch made in style of moria dwarf ring with slavic runes engraved
 horrifying decadent baroque sculpture of a
 The Urantia Goddess of Chroma 2:3
 sonic the hedgehog game in the style of Boris Vallejo
-kai'sa league of legends
-&lt; stunning image of a female Pennywise, Mia Sara, deep intense colors, with dark red dreadlocks, dark female face, attractive, face tattoo, demonic, evil infernal city in the background, corrupted, fierce, in the style of Mark Mann, Jocelyn Lee, Hans Zatzka, Craig Mullins, Masamune Shirow
-&lt;&lt;&lt;&lt;
 wooden house by park lake, water lillies, royal gardens, lush greenery, flowers, sunrise, painting by liam Wong and canaletto
-bird eye view inside a gigantic Hell lit by dim fire torches, screaming Souls , cinematic lighting, skulls lying , dark environment by Marc Simonetti
 a heart and strings frozen in the snow
-scarlet witch
 artstation, a pretty young woman with red hair and wearing cute black dress, muted palette, renderman render, photo-realistic, outdoors, highly reflective, fog and atmosphere, epic, octane render, concept art, symetrical eyes, blue eyes, red hair, clear clean face by Keith Parkinson, 8k
 weird business man, close up, oil paint, hokusai, junji ito, creepy stare
 loremancer archivist grizzled wizard writing in a book
@@ -1324,40 +1025,28 @@ walk among the japanese cherry blossoms of a magical fairy glen
 White white Monday - always the last day, Young green Tuesday - hot and clear day, Yellowish environment - incoherent inflamed day, Purple Thursday is such a huge eternal day
 Swimming graceful deep sea jellyfishes with long tentacles and dotted glowing stripes, some small floating particles, subsurface scattering, rendered by Redshift with Redshift Environment and Volume Scattering, rays, deep ocean purple and a little orange
 alice in wonderland landscape painterly
-nothing
 Through the Looking-Glass landscape
-everything in the universe
 Fall of the empire's reign, galactic castle besieged and being destroyed, fantasy science fiction, burning skies, grim colours
 beautiful portrait painting of an anime girl, cute, , symmetrical face, symmetrical eyes, two identical symmetrical eyes, portrait, beautiful girl, artstation, trending on artstation, gorgeous, smooth skin, ebony skin, afro, black skin, curly hair, blue hair fantasy style, pastel colors
 cyclops of doom, tornado, metropolitan, scifi, dystopia, grey skies, apocalypse, annihilation, green hacker glow
-A wizard’s cabin with a stone path, near a brook,little demons in the air, spectacular render, serene, dark fantasy, realistic, photographic-realism, stunning render, sharp details, clear picture, movie-quality, detailed, golden ratio, rule of thirds, colour theory, sense of calm, unreal engine, raytracing, post-processing, zbrush, substance painter, trending on ArtStation, cgsociety, cgi, 8k, arnold render
 the most beautiful woman in the world dancing in the rain, in the middle of the road, drenched, wearing a white t-shirt and black tight shorts, smiling and stopping traffic, hyper realistic
-Wizard of Oz witches castle
 the whole universe in the eyes of a lover, photorealistic, high definition, detailed
-cute
 ⭕️ is a portal to another world
 dark templar knight wearing full armor with spikes allover, grainy illustrationm, very dark background
 symmetrical graphite portrait of woman, sketch, hatches, paper, flowers, beksinski's style, rough
-Wonder Woman body paint
 Star Wars poster design, AT-AT Walker, Hoth, snow terrain, rainbow tones,edge to edge, neon genesis evangelion, red dawn,Studio Ghibli, Miyazaki
-painterly atlantis landscape
 painterly Hansel and Gretel cottage
 possessed superhero, radioactive, Redshift render, cgi, 3D render, epic scene, studio lighting, ultra-realistic, photo-bash, 8k, post-processing, rendered in octane
 skeleton of huge monster, leviathan like snake, displayed in the museum
-the little death
 chiffon leaves flowing through an enchanted glowing forest
 isometric concept art for a utopian scifi city, futuristic, floating biogardens, solarpunk
 A rose sneezing and pollinating a daisy creamy rainbow foggy morning glow
 &lt; &lt; hooded cyborg standing in a misty market, robotic arms, cyberpunk, character art, cinematic, traditional clothing, big shoulderguards
-In coffin distant houses
 beautiful anime girl, bikini, wet, pose,
 young african-american man, colorful dreadlocks, holding a plastic cup, ferrari in the background
 Long happy life, In the middle of identical walls, In coffin distant houses, In the impenetrable icy silence + cold color + dark art + 8k
-border frame containing sword
 terrifying lightning storm over cityscape
 recursive reflections of cosmic eyes and jellyfish in the ocean, strange and ethereal, scary atmosphere, shattered skies. Bold textured oil painting.
-+
-sticker of cute little chibi cosmic horror, kawaii, adorable, pastel, detailed, fun
 psygnosis games DOOMII screenshot chrono trigger screenshot fps build engine looking far into distance explosions gloss black .38 special revolver magnum black leather bandolier long distance horizon flat desert angry peasant mob
 mech gundam, cyber futurism, airships
 The front of an eclectic antique and junk shop, by Shinkai Makoto 'Atelier Series', artstation, concept art
@@ -1366,88 +1055,62 @@ the reapers toll, realistic cloth, cyberpunk + flowing cloth + cgi + subsurface 
 Badass Troll Chief with Charcoal Tiger Orange skin and short whiskers, dripping clear glossy slime, sythncore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
 trippy psychadelic astronaut helmet covered in cracks and dirt, 8k, dof, blur, octane render, symmetrical, cursed, spirits of the dead
 Long happy life In coffin distant houses + cold color + dark art + 8k
-Edgar Allen Poe
-ww1 mech village
 funeral in an abandoned old gothic cathedral with huge windows, high detail, black and white, beams of light
-maximum detail + by Production I.G, in the style of Ghost in the shell anime
 psygnosis games screenshot DOOMII screenshot fps build engine pathologic screenshot chrono trigger game screenshot looking up at giant boss fight explosions gloss black .38 special revolver magnum black leather bandolier long distance horizon flat desert angry peasant mob matte black vintage car idles deep red dusk heavy clouds el topo cold tattooed hands engraved dagger black magic scripture
 beautiful little girl merged with a mushroom, concept art, atmospheric, epic, realistic, photo realistic, by Stanley Lau
 extremely young handsome black man, symmetric circular iris, realistic, extremely defined philtrum, high cheekbones, slim jaw, big eyes, full glossy lips, lipgloss, reflection on window, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, cgsociety, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face + text, male, long neck, textured eyes, oblong iris, oval iris
 beautiful anime girl, red glowing hair, smiling, clear clean face, symmetrical face, blurry background, pose, trending on artstation, Alexandra Fomina artstation, face by Ilya Kushinov style, style by Loish, Norman Rockwell, painterly style, flat illustration, high contrast
 a parametric statue rising its hand to the sky
-a supermodel
 oil paint, cashier at walmart greets you with a wide grin, junji ito, strange, yellow sickly lighting
 an ancient and colossal renaissance baroque city with five towers in the jungle, high fantasy, ultra detailed, magical glyphs and symbols in plazas, light beams and glowing linings from buildings, afternoon, by craig mullins, Giovanni Panini, hyper realistic, panorama
 3D render of a very futuristic building with an curvy architectural design with a garden city background, by santiago calatrava, zaha hadid, hr giger
 beautiful nymph portrait, realistic quality 5 --stop 80
-luxury
 Group photograph of norse-vikings, serious symmetrical faces, sitting at a table in a tavern atmospheric volumetric light Kubrick-cinematography f/0.7 intricate 8k
 A Fly agaric in a magical Forest, spiderwebs hanging down of the fly agaric, fog, magical colors
 a flower photographed in a studio
 The monolith from 2001 space odyssey found by soviet astronauts in the dark
-thing’s i drawn pirate
 Crystal clear underwater city full of clear crystals, New York City, high-rise buildings, underwater photography made of stars space, nebulas stars Dmt Psychedelic cosmos, cosmic, Hallucination, night sky cluster Milky Way constellations fern,many crystal clear transparent jellyfish, shiny, floating up, fluorescent moon fell on the road,glowing fish swim past, rings of bubbles，dreamy,very majestic scene,light effect,bright color,photorealistic, 8k, cinematic lighting, unreal engine, in focus, extreme detail, macro shot,
 Zelensky fighting Putin, Studio Ghibli
 Pulitzer Prize for Photography 2024
-waterfalls and birds
 24mm, beautiful young female vampire goddess with pretty face with freckles and tattoos, black + red hair while she is partly covered in vibrant native face painting, large well-defined eyelids, big astonished eyes, artstation, concept art, warm light from behind, clean lines, cinematic shoot, character design, strong backlight, lensflares, bright and clean look, volumetric light and dramatic shadows, 8k + mixed in the style of loish, in the style of glenn arthur, prisma effect in camera lens, cute look, with the aesthetics from drawings from atarot cards ,vintage baroque style influced, very detailed illustration, ornates, smooth lines, native style dreamy fantasy look, symmetrical face, rule of thirds, cinematic
-butterfly knife
 minimal hipster logo design with the elements. Fire, Water, Earth, and Air
-Odysseus hides from the cyclops, Greek mythology, beautiful, horror, lush, cinematic lighting, fine detail, cosmic horror, mossy cave, light beams
 fredor, gold and orange, character design
-skull skeleton dark dugeon
 different coloured bioluminescent alien specimens in jars
-dream palace 4k prince
 hyperdetailed macro portrait, cute monster in pixar, floral mandala pattern in form of Rorschach inkblots, translucent colors, symmetrical,detailed, photorealistic, volumetric lights, depth illusion, chaos magic
 Dark Magician Girl Yu-Gi-Oh, full body, heart of the cards
 old man fat , Giuseppe Arcimboldo protraits with gear, screws and metal objects , bright background, ultra realistic
 Futuristic Kharkiv after the war, with technological research buildings , autonomous vehicles and carbon capture technology
 blue dragon use cold breath on out of the world , 8k, cinematographic render, octane render, 3d artstation
-the matrix pixelart
 strange love, in the style of Mark Ryden, hyperrealistic, very colourful and bright, contrast composition, concept art, octane rendering, 3D, 8K
 Anunnaki, Sumerian deities, stone wall, golden light, Mesopotamian, underworld
 photo, sci-fi landscape, Martian, iceland, desolate, rocky, landslip, canyon, clear day, blue sky, moons, lights in sky, northern lights,
 2b,dark alley,rain,4k,cosmic giant doing backflip on a skateboard into the starry night, gothic,cyber,victorian
 portrait space pilot, Studio Ghibli painterly style
 gritty film noir reboot of paul blart
-hollow knight
 psygnosis games screenshot screenshot fps build engine chrono trigger game screenshot looking up at giant boss fight explosions gloss black .38 special revolver magnum black leather bandolier long distance horizon flat desert angry peasant mob
 A massive old oak tree with small houses in it, surrounded by vivid colors and a magic enviroment.
 Tokyo, building--no people, facade, signs, cyberpunk, futuristic, sci-fi, neon, maximum detail, Sinister, grey, 200mm lens
 art, cymatics, ferrofluid simulations, sound sculptures, cinema 4D rendered, brilliant white clean clear, object floating above an empty void, crystalline, particles Houdini FX, particles, fractals, hyper realistic, cyberpunk,
 cute photorealistic fluffy red panda sitting on a gaming chair with a gaming headset on, excited to play
-&lt;&lt; &lt; &lt;
-Hitchhiking Ghosts
 Rosalina from mario anime style
 hip hop comicbook manga cover music, rap, r&amp;b
-hyper realistic mario kart
 smooth curves branding graphic design with face eyes and mouth smiling
-woman from ethiopia
-générale pery concert gig
 ceiling trasparent, vault, milky way, dreaming, etching, watercolor
-bald cat catches pigeons
 sci fi, troopers and bounty hunters with guns and blasters , explorer astronaut people walking about next to a futuristic cabin in a woodland forest of strange plants that looks like coral + a red and orange alien landscape, alien foliage, funji, spores
-Hejného metoda
-Cuphead symmetrical face
 a king Charles spaniel with a white stripe on its forehead, in Zelda breath of the wild
 illustrated flower in the style of gustav klimt and wes anderson
 artnouveau virgo woman necklace artnouveau stylr
 a steampunk female angel with mechanical wings
-warrior in a field
 A super realistic CG Ancient Chinese palace, red walls, golden roof, very luxurious, stunning, HD
-creature of the void
 Tresco dark purple and yellow fields and lane leading to white sand beach in the style of David Hockney
 futuristic korean man, with wavy two block hair, wearing eye glasses, wearing cyborg mask, standing full body in front of burning building, chaotic burning city, wearing trench coat, raining, neon light, burning building, storm, night, cinematic lighting, futuristic
 Harry Potter at Hogwarts, stylized by Hayao Miyazaki
-data in flux
 video footage of Lindsey Lohan in the style of a Terry Richardson photo
 highly detailed streets of a japanese futuristic city, designed by Junya Ishigami, facades made by polished metal structures, wet ground, hard rain, many people wearing robes walking and standing, neon lights in the facades, foggy atmosphere, early morning sun, concept art, sci fi, cinematic, trending on artstation, realistic, 20mm camera, corona render, rule of thirds, hyper detailed, insanely detailed, cinematic lighting, cinematic art, ultra-realistic, real image, wide-angle image, Unreal Engine, ambient occlusion, realistic, corona render,8k, octane render,
-magical female hips like wings
 a green house, cactus shaped, made of a steel pipe structure and covered in trasparent reflective textile in a field of wildflowers, photorealistic details, cinematic, dusk, bees
 Fantasy Knight portrait in the style of Sergio toppi, Tsutomu Nihei, full helm, black and white, ink, illustration, artstation, concept art, dark,
 Gothic Greek city, Arctic evergreen jungle, farms, fantasy art
 Kratos God of War 2018 drinking a pint of beer at a table in a field
-**Dadaist horror future, gothic, head to toe android with tentacles, exaggerated long limbs, circuits, bone, city, beauty, time travel, quantum, b/w, mind projection, textured skin, geometric tattoos, sacred geometry, 5d, surreal, photorealistic, detail,
 **storyboard depicting : **&lt;&lt; anti hero fighting government in giant ornate temple, petra, angkor wat, carved stone, among statues, relieffs, pharaonic inscriptions, gem stone, jade, stargate, crystals, spielberg, otomo, ian mcque, occult, hidden secrets, masonic, cadmium blue skull zirconia, photorealistic, 8k, octane, uhd, unreal, wide angle, Low angle, elements of lunar cult, dark goddess symbols, mystery school, cuneiform, golden tablets, epic scene, dramatic lighting, volumetric, mood, serene, atmosphere
 misty night in a seaside american town, creepy mood with lights in the fog
 backside of poker sized playing cards
@@ -1462,17 +1125,14 @@ polished porcelain doll mask portrait
 a portrait of morrigan from darkstalkers. Beautiful woman.--no blur
 young kid in full armor riding a rabbit, inspired by Mononoke hime, ghibli
 nocturnal landscape of a beachside forest
-/let the million flowers bloom, psychological horror, fever dream, surreal, yoshitaka amano
 A huge #alien basalt rock spaceship #formation near the beach #unreal engine #4k #render #octane #cinema4d
 Parametric nabatean architecture deep in a cave glowing, midground shot, detailed, environment, photorealism, haze, cinematic, intricate, highly detailed, volumetric light, corona rendering, moody, mist, 8k ultra hd
-Rhodesia military
 colorful abstract liquid paint gradient map photoshop cinema4d blender octane render iridescent holographic psychedelic pour paint fluid stars vignette space 4K oil spill top view sparkle rainbow trippy
 musical notes made out of slimy clowns
 a baby dunking a basketball into a volcano
 flowers laying in the middle of a brick road, claude monet
 flowers in the sky, soft colors, pastel colors, cinematic lighting, fireflies, ghibli style, trending on artstation
 cyberpunk profile picture of a man, 8k, ultra detailed
-Transformation sequence of a scared young man mutating into a slimy gecko mutant while in his bed. Cinematic, 4k, photo, horror, pain.
 space battle , wide angle, distant stars and nebula, laser-beams , explosions, wreckage in foreground, ultra high definition, 8k , hubble , cinematic
 heimerdinger from league of legends mixed with a red panda
 two rapping man with hood dark two people crouched on black sand closer surrounded by plants veins forest
@@ -1483,18 +1143,14 @@ colorful seemless repeatable pattern inca fabric
 a pomegranate hacking on a computer wearing a black hoodie
 monochrome, lithograph, astronaut,necrotech, medical diagram, craig mullins, burnt orange color, maximalist, insane detail, decorative, ray trace, Myron, Michelangelo, Yoshitaka Amano
 A couple took photos on the beach at sunset, Monet style, 4k.
-a devilish black dragon in golden armor
 Inca Empire style ,Ancient rune incantation, carved on a stone pillar, showing the element of fire ,unreal engine,Maxon Cinema 4D,highly detailed
 two supermodels wearing givenchy couture, one blonde Swedish and ethereal, one gothic Romani gypsy, sitting opposite eachother over a crystal ball filled with ravens, in a mystic's tent
 tools scattered on the ice, repair, abandoned ice cathedral, 8k, ultra high detail, exquisite, unreal engine 5,
 Cerveau humain dans un bocal, fond vert et sombre
 D&amp;D; full silhouette; crown of thorns; wooden antlers; Fully hooded priest in green-brown robes
-Evil queen of scotland, scolding, pale skin, beautiful, gorgeous, alluring, medieval clothing, tomb backdrop, fantasy atmosphere, mystical, magical aesthetics, illustration, by WLOP,
 Eva Green in red leather bodysuit on a sandy beach, photorealistic, 8k
 atomic blast, mushroom cloud, nuclear blast, very detailed, quality 1000, 4k,
-Tim Heidecker as Bob Dylan
 jason and blonde laurie in Montauk
-blasphemous penitent one
 space astronaut, nebulae, galaxy, very details, realistic, CGI Marvel, cosmic, epic, cinematic, epic light, insane detail, photorealistic, Beautiful ,
 Looking up at a derelict street corner to the rectangular building facades in futuristic cyberpunk Neo Tokyo in a rainy night with red and white neon signs and ominous green lighting, 200mm lens, hard surfaces, metallic, reflections, maximum detail, painting
 a young woman with a laptop chooses between working and going out with friends
@@ -1505,47 +1161,35 @@ animal portrait of a frog dressed as Rococo style, very detailed, realistic, con
 A Song of Ice and Fire George Martin Star Wars
 Hercules fighting Darth Vader in epic space battle, 8k render, realistic
 snow at the Atlantic, epic shaft mists, cinematic background, cinematic top view, 8k, high resolution, rule of thirds, version 3, quality 3
-steampunk punk rocker
 a black and white film photo of an enchanted obsidian pillar in the rocks, white crows flying, black desert, black and white, dark, atmospheric, vintage, lo-fi, slightly noisy, old, painting,
 picnic scene with watermelons and cocktails on a beach
 a puffin shredding on electric guitar
 ancient greek-inspired islander king, tan skin, colorful robes in the blue and turquoise of the ocean, luxurious fabrics, pointed ears, gold decorations, copper bracers, black hair, atlantean, symmetrical face and body, fashion, realistic, costume design, artstation, character concept
 + 35mm + pretty young female wizard with Raven feathered wings + warm light from behind + auburn hair + large well-defined eyelids + big astonished eyes + artstation + octane render + cinematic color grading + muted colors + soft light + rule of thirds + like a professional model + cinematic + 8K
 water from the canister with the blue poles
-crypto gold circular coin
 Cyberpunk gypsy girl in Pin-up style
 grey and brown speckled rat smoking a Cuban cigar
 kendrick Lamar as jesus Christ hanging in the air while a crowd cheers for him in a desert, post apocalyptic
 old hands holding a wooden wheel covered in compass runes
-leviathans in distant space
 photography of intricate cyberpunk synthweave symmetrical portrait of a rusty scrap robot in an astronaut suit with electronic widgets, cables and gear, character concept by Ross Tran and simon stålenhag and Studio Ghibli, amazing neon purple light, stunning atmosphere, dramatic scene, scifi art, artstation, cgsociety, dof, photo, 3D depth, Tekkonkinkreet
 cute zoomed in girl from a movie, with long purple hair, face looking into the camera, reflection of the city in their symmetrical eyes
 A shipwreck on bottom of the sea
 Gothic Cyberpunk Cathedral surrounded by decaing Necromorphs trees
-the most evil thing in the universe
 lord of the rings style, indian architecture inspired massive, ornate walled city set in the great plains, lake in the distance, collossal scale, wide angle
-benadryl hatman
 psychedelic cat, 3d hyperrealistic 4k image style
-daedra, wide shot, horror, cinematic, dark, 8k, highly detailed, octane render
-cyberpunk faun girl
-Mike Mignola's Death Stranding
 A luminous skeleton mecha bust, Cyberpunk style, future technology, digital art, is popular on artstation,
-movie poster modern samurai
 rose quartz, etheric, fish scales, fly fish, galaxy, feathers, pearls, octane render, high detail, sacred geometry, golden light, consciousness, wet cloth, fish fins, goddess, celestial, galaxy, fish scales, glass, eyes, abstract, 8k hyperrealism, hyperrealistic, unreal engine render, highly detailed
 post apocalyptic, soldier whose face is wrapped in bandages and soiled by soot from a fire, 4k realistic
 RAJINIKANTH CHITTI THE ROBOT wearing dark red suit with sunglasses, 4k, photo realistic, lighting realistic, high detail
 every possible future of humankind, 8K
-tropical fruit bonsai
 The sensless cruelty of right wing politics summed up in one picture
 Ford in Germany syd mead style 2030
-A long serpent rises out of the dark waters. The serpent has the head of a pike fish, the pike head has a large red eye that stares at the camera. The serpent thing is a creature of pure nightmares and terror. macabre-horror
 Voronoï texture, flowy movement, tileable,
 butterfly, translucent, neon green, neon pink, neon blue, neon yellow
 Portrait of Robotic goblin, highly intricate, anatomically correct, highly detailed, 3d, unreal engine
 San Francisco victorian houses, photo, 1970s, Fuji Velvia, 24mm, calm
 house floating in space, expressive gouache illustration, glitch art, pixel sorting, wide angle, octane render 8k
 three cloaked man with hats in a overgrown ruin, black and white, photography Tri-X 400TX
-the unknown world
 A hero named, “Zero One,” standing dramatically in Saloon Punk attire, back lit, background dusty Junk Yard, on linen paper, using fine lines and gradients, painted in Gauche, Impasto painting style, Using the colors of the skyby the Singularity Artist, influenced by Alphonse Mucha and Karl Kopinski and Ashley Wood and Andrew Wyeth and Moebius and Möbius and JWM Turner
 candyland island , clean a fresco styl
 glass sphere with viruses and dollar signs floating inside, octane render, hyperdetailed photograph
@@ -1555,12 +1199,10 @@ an Arabic woman casting a spell in the sand
 battle mech emerging from swamp, ultra realistic, 4k
 And I try to fall for her touch
 An airport interior with foliage and a large waterfall inside, realistic, 8k
-hope green light joy wolf
 medieval tapestry depicting cyberpunk cityscape
 Aries goddess, fantasy, alpha women, acvamarin, hammer symbol, forest background, Honeysuckle
 a drunk driver accident on mario karts rainbow road
 Canyon out of Overlapping Apartments and buildings
-sad chocolate
 One ballet dancer surreal landscape oil on canvas William Blake
 Sacred sensuality, cervix, Awakening, bloom, fractal, portal, 3d, Transformation, journey, smoke swirling upward into fractals, mystical, magical, high contrast, epic, symmetrical, elegant, beautiful, realistic, 8k, purple, teal, light blue, neon, high contrast,
 scary vampire monster on two legs in full growth, wings made of bones behind his back, gloomy atmosphere, gothic architecture, gothic cathedral interior + cinematic lighting + deep shadows + hyper-realism + maximalist composition + complex details + Artstation trends + post-processing 8k High Detail + Octane Engine Rendering + Detailed post-processing 8k
@@ -1573,86 +1215,60 @@ Interior of a Blacksmiths Forge, Red light, Cluttered with Tools and Weapons, Fo
 a city build within a Watch movement. Ultra realistic 8k graphics
 woman in style from michael parks, detaild , 8k
 a Rembrandt painting of a clown in a room with kids crying
-abandoned industry horror lighting
 latin american fantasy landscape
 , , japanese street, various side streets, japanese populated city, stone walls and wooden houses, power lines running over the roofs, clear grey street with strong yellow markings, a few cherry trees with shinny blossoms, summer , in the style of Charlie Bowater, Tom Bagshaw, Alexis Franklin, Elena Masci, Miyazaki, Nausicaa Ghibli , Mucha, dreamy, detailed and intricate, realistic, beautiful highly detailed, detailed and intricate, volumetric light, pastel colors, atmosphere, hyperreal, hyperrealistic, unreal engine, torches, purple red green lights and LEDs, torches , kimi no na wa, koe no katachi, ufotable no blur --no people --iw .4
-lasphemous concept art
 huge blue dragon sitting on the isberg and use cold breath , 8k, cinematographic render, octan render, 3d artstation
 magic the gathering art of a spaceship landing on a lush green planet
-tree growing all the fruits
 grim reaper, black, gold, maroon, data mosh, glitch, 4k,
 a pencil sketch of a male scientist, greek, 54 years old, short grey hair, moustache, rather thin, serious but sweet
 many people queuing to slide down an extremely tall hill
-god having ego death
-Wraith death
 rabbit girl open buried treasure chest at the bottom of the ocean skulls surrounding floor
 Wadi Al Disah, Villa ontop of cliffside, carlo scarpa architecture, poetry of light, Wadi, Date palm trees, Simple geometry architecture, dramatic landscape, dusk, romantic, saudi arabia, middle east, Nature in the desert
 woman from the 1960's wearing blue tights and red heels, holding an old television set that is showing the same scene, modern japanese style
 A poodle sitting on top of a planet floating through space
 simple drawing of an angry hedgehog from side view
 three cloaked man with hats in a ruin, black and white, photography Tri-X 400TX
-modern Assassin's Creed
 Large modern atrium, by Thomas Heatherwick, 4k
-pirates
 a beautiful painting of the streets of a cyberpunk metropolis at night,--wallpaper
 Do not go gentle into that good night, old age should burn and rave at close of day, Rage, rage against the dying of the light
 Joe Biden posing next to a british caravan, rainy, malancholic, Butlins
-medieval stormtrooper samurai
 a technologically advanced city getting invaded by giant alien ships with giant laser cannons hyper realistic
-nft style dog
 akihabara at night with kawaii pastel colored ghosts floating through the city
 crying into my bong, cinematic, 8k
 Vladimir Putin in chains. War and nuclear explosion in background. Oil painting
-Beautiful randomness
 A stark hyper realistic detailed moody matte painting of an alien dark stone tower, tall grass landscape with a cloudy pale ominous sky. Daniel Docui, Returnal, Simon Stalenhag, dynamic lighting, dramatic lighting, cinematic lighting, unreal engine, trending on artstation
 baroque woman, face of ethnic features, high cheek bones, olive skin tone. Stunning. Armor intricate. Blades and lace. Baroque home. Candlelight
 monk meditating, comic book line art style, the genesis of the universe, vivid rich colored ink, intricate and detailed
 portrait in greyscale by yuumei art
 a house in a plantation made of eye balls, tribal, hazy, dramatic, cinematic, balance perspective, ultra realistic, detailed, octane render, 8k
-chaotic mutation in space, 3D
 grumpy academic holds stacks of papers while their office burns. digital art, noir
 cinematic shot of a robot wedding, sense of awe, photoreal, ultrawide shot, establishing shot, cinematic composition, matte painting, intricate, artstation, style of Studio Ghibli
 baghdad futuristic cinematic artwork ,caravaggio,chiaroscuro lighting,baroque space ship. gold. Nova bursting in the background. As an old theater poster in the style of alphonse mucha
 golden Holy Grail with diamond realistic, 4K
 a blue and pink dragon, shiny slimy metallic scales, lovecraft, hyper realistic, looking at camera, fashion shoot
 terror reigning over a town of destruction
-imagine Beautiful illustration expressive gouache, about full body Vampire girls, symmetrical face, symmetrical eyes, symmetrical body With Anatomical heart, traditional Japanese kimono, horror, limited colors, Eastern European, Russian folk, vibrant colors, epic, 2D + By Takato Yamamoto, by Camelia Pham, by Whoopi Chen,
 glass like futuristic human with stretched ears tunnels, 3d render, blender
 faceless man with boxy head, face made of stripes, mixed media with white and silver lines, realistic composition, point of interest at golden ratio high quality of sketching with subtle hairlines, highly detailed forms, inside out and outside in, octane render
 basketball shoes inspired by the planet saturn, photography, 4k, photo-realistic,expensive, highly detailed,
 intellectual thinking about world burn
 flying pink marble forgoten ruined legendary temple with cariathides god sculpture towers waterfalls flying pink marble fountain isometric painted by david
 basketball shoes inspired by the moon, moon surface texture, highly detailed, 4k, octane render, expensive, stylish
-ideal palace
 Hunt Showdown giant boss fight, broad daylight, hot sun, god rays, 8k, HD cinematic, wide angle
 space ship interior filled with a big electromanetic vortex. The vortex looks like it's made of glass. Photorealistic
-blasphemous penitent one:5
-gummy monsters, in bottle
-nuclear woodland hyper realistic 8k horror
-ein haus für Lotte
-fantasy castle by the beach
-vecna but tired
 A little girl with curly brown hair with a happy expression wearing a summer dress dancing with fireflies, beautiful digital art trending on artstation
 Kanye West album cover in the style of Max Ernst
 old bearded captain smoking pipe digital illustration intricate details complex
 forest monster with a wolf skull head
-Alexandra Fomina
-beehive with lots of bees
 Endless highway filled with abandoned cars, in projection
 the Fairy of the Fruits in an oil painting by Jean-Honoré Fragonard, portrait, fairy, girl, intricate details, blue hair, symmetry, straw hat, warm colors, apples, bananas, oranges, grapes, pears, pineapples, strawberries, raspberries, peach, blueberries, apricots, kiwis, glitter, sweet vibes, tasty tones, cinematic
-nun foster home horror
-heaven and hell, inferno storm, artstation, hr giger, imax film quality, hyperrealism, highly detailed, ultra-realistic, octane render, 8k,
-airship 1918
 hidden basement with creepy monster chained to a wall, scientists doing experiments on it
 alien planet, robot war. Epic battle. Ultra details, panoramic view. Cinematic. Hyper realistic. Artstation trending.
 a moody renaissance painting of a peasant boy in a large field of an old medieval farm. Extremadura, large black pigs, acorn trees, mist, fog, pig ponds, before sunrise, dark, pre-dawn, moody, volumetric light. By Titian, Goya, Caravaggio, perfect anatomy, Museo del Prado.
 black haired superhero woman flying in a cyberpunk city octane render
-the thing, the blob, cthulhu, eldritch abominations, attacking people, unspeakable horrors, necromorphs, tentacles, epic, assimilates lifeforms, highly detailed, humanoid, volumetric, cinematic, concept art, trending on Art Station, 8k,
 watercolor poster abstract pink gradients, extreme resolution, soothing, relaxing, ready to print
 artist in front of a digital easel making digital art, dark, digtal art, realistic,
 pigeon in a pool losing sense for time and space by david hockney
 light pink Cherry Blossom,Disney Castle,clouds, dramatic clouds above,dreamy, Many Flowering cherry,A few Flowering cherry,ultra wide shot, Magnificent and fantastic John Howe landscape, pink clouds, Fairy tale, atmospheric, hyper realistic, 8k, epic composition, cinematic, octane render, artstation landscape vista photography by Carr Clifton &amp; Galen Rowell, 16K resolution, Landscape veduta photo by Dustin Lefevre &amp; tdraw, 8k resolution, detailed landscape painting by Ivan Shishkin, DeviantArt, Flickr, rendered in Enscape, Miyazaki, Nausicaa Ghibli, Breath of The Wild, 4k detailed post processing, artstation, rendering by octane, unreal engines
-venom wearing eldar
 creepy sailor moon 3d octane render
 hunter schafer as a cute young manga girl
 Morrowind seamless imperial brick texture
@@ -1661,24 +1277,17 @@ fractals of my mind, laid out over time, the water of a fire type, chaos and bea
 surrealist landscape, bird with the body of a wasp, flying whale like creature, floating hour glass, pyramid with all seeing eye, cactus fish, pearlescent sand dunes, dream like sky
 interiors of a godly palace constructed of mirrors and spiraling staircases at night
 the mad joker from animated serie batman, big bang background, psychedelic retro style
-foodporn glossy photorealistic
 portail ,fantastic world, cinematic lighting, Japanese style
 The Eiffel Tower in the middle of the desert, in the style of Pablo Picasso, realistic
 **a beauty chinese woman is dancing, 18s century, 3D, highly detail, octane render, concept art, fantasy art, cinematic, victo ngai
 &lt; symmetrical surreal baroque painting detail of octopus squid tentacles reflective mirror motherboard chip circuit honeycomb beehive holes eyes embryos white xenomorph sorayama metallic spiky spine tentacles ribs teeth muscle tissue embryo white plastic translucent meat made of glass
-The Unknown
 Dove Diane Yavapi Native American
 city full of skyscrapers, atmospheric lighting, art nouveau, German expressionism, silver
-very sad pocahontas
 a 5 story concrete post and beam empty parking garage renovated to be filled with modular tiny homes, plants, trees, and hanging gardens
 a cartoone styled mouse playing piano in the front of a old television, the colors are red, blue, pink and yellow
 four beautiful young women dancing in a trendy nightclub
 codex of angelic elder gods by Anton Pieck and Jacek Yerka, blessed nyarlathotep and cthulhu by Maria Sibylla Merian
 love from a son to his mother, happy, landscape
-Cybernetic
-a bad trip
-psychedelic robot birds
-young Joel Kinnaman as Thor
 dark, watercolor, fantasy, steampunk, heroes, heroic shot, cinematic,
 african skull with warpaint, angry face, black and grey, sword, schematic, black ink
 vintage tarot card, carousel ride
@@ -1686,14 +1295,12 @@ interior of a dungeons and dragons shop with potions and magic crystals and glow
 green piched roof house surrounded by trees and flowers
 realistic matti pellonpää with cigarette and beer in a plain restaurant
 anthropomorphic creature portrait, jesse kanda art, arca mutant, fur, extra facial features, big nose, glass glossy skin, big lips
-monolithic demongate space portal manifestation aerial viewscape energy spit sought raw psychic chroma cinematic dangerous air view dark entities, symmetry
 a slavic warrior fighting a monster
 night on dagobah, 4k, realistic, mysterious
 1930s gangsters and police puppets, grotty, awful, criminals, grimy streets, Trnka, Sahlin, Frank Ballard, hyper-realism, highly detailed, sharp focus
 field with standing stones, menhirs, monolith 8k render with cinematic light high details
 a classic comic grid with speech bubbles. Kain and Abel, making friends. On a vast opera stage. Online. People of color. Comic Martin Kippenberger style.
 Bionic ultrarealistic machine dog. Futuristic mood, IA, machines war, octane render, 4k.
-earthy dwarf mushroom druid explores ancient mayan temple, fantasy, spooky, horror, dark
 man and child in tattered clothing sitting on the stoop of a burnt down house in the rain
 steampunk graphic card, Nvidia RTX
 oriental druid meditating underwater
@@ -1702,32 +1309,23 @@ geisha, skeleton body soldier with wings, futuristic, bone crown, female, creepy
 exploring a ruined home overgrown with plants in Simon Stålenhag style
 Ryan Reynolds vs Dwayne Johnson fighting on the ring, cinematic scenery
 character portrait design for a roleplaying game, sense of fashion, middle eastern businesswoman female heroine with well groomed red hair wearing a stunning elegant dress, Craig Mullins, Elena Masci, Jen Bartel, Dan Mumford, Smooth Gouache Illustration, Edge to Edge, Full Frame, character design by Mike Mignola, body and head portrait
-steampunk SpongeBob
 heavy armor science fiction super soldier, power armor, cybernetics, future
 a young blonde woman in a leather jacket walking through fog in a big city at night
-Serb Soldier Tupac
 Lemmy Kilmister and Lenny Kravitz as the same person, Lemmy Kravitz
 the last of us, bioshock, a field of wild flowers, wideshot, wind, sun down, moody, vibrant colors, atmospheric, volumetric light, sunbeams, cinematic, 8k, cinematic, concept, hyperrealistic, unreal, artstation
 isometric map of a medieval visby
 female protrait in style of metal gear solid and Yoji Shinkawa and jeremy mann and Mucha
 Swarm Of Angry Tiny Arctic Foxes (Dark Scene). in a darkened forest. Pathfinder 4K Fantasy Wallpaper. Rendered in Corona. A swirling mass of tiny, furry white bodies. Glowing eyes and sharp teeth are the only things visible in the darkness. The foxes swarm and snap at anything that comes close. [artstation wallpaper, hyper realism, rpg monster in misty environment., specular highlight shader, vibrant colors]
-astronaut walk strom space
 a cartoom character playing games ultra realastic 8k
-cyberpunk city
 minimal hipster logo design with the elements. Fire, Water, Earth, and Air. seal.
 labial folds being penetrated by a finger
-thresh from league of legends
 Fluids, tinted translucent gel, particulates, caustics, iridescent frosted glass, Rubber / Silicon, rough refractions, See through, atmospheric macro photography
-black hole
 love in a shanghai summer book cover in the style of zipcy
 Parametric building, vertical green, light grey, sandmedium grey, concrete, sustainable, trees, small black people,glossy, octane render, ultra detailed, hyper realistic,cinematic Light, night, 4K
 the endless galaxy of space and time, colliding with stars, 8k, ultra realistic
 modern interior with Vitra furniture + clean ab minimalistic architecture, concrete and earthy bright tones, sunlit and moody, friendly atmosphere, realistic, corona renderer,
-harry potter as hello kitty
 grimdark fantasy tarot, stained glass queen, empress, dancing, winter sunset, turquoise, pink, purple, stained glass science fiction planets, beautiful symmetrical face, cinematic lighting, portrait, hyper-detailed, cgsociety, Charlie bowater, Tom bagshaw, Peter mohrbacher, beautiful, elegant, cinematic, cold, butterfly, cosmos, Raphaelite,
-Vanaheimr
 a salary man smoking a cigerette in an empty alley in the back of tokyo street, dim lighting, illustration art, concept art, hyper detailed, artstation, in the style of anime akira
-killer bear cold eyes 8k hd
 a Kodachrome photograph of the Pompidou Centre
 endless liminal claymation spaces with abstract stained glass by matisse and Jules Lavirotte, with shadows, multifoil arches, high octane render,
 web 2.0, technology, realistic, texture, 4K
@@ -1739,7 +1337,6 @@ Dark Souls Cathédrale incredible detail atmosphérique
 cosmic city on lost planet, deep space, urban details, 8k, modern space city, human colony on mars
 Reclined Stoneage elf goddess fantasy painting tenebrist
 a black and white film photo of a man and a girl standing far from each other, white crows flying, field of white flowers, black and white, dark, atmospheric, vintage, lo-fi,
-eazy e,realistic,8k
 yellow cab in manhattan, snow, night, city lights, cinematic atmosphere
 teenage girl in a mech exiting it on the beach as it explodes in the background, raining red lightning storm, Cyberpunk, lost planet 2, no helmet, pretty, big machine gun arms, war, apocalyptic, war in background, ocean in background, monsters in background, detailed, 4k, military attire, gun on floor, grunge, dark fantasy, realistic, futuristic, 4k, octane render
 Van Gogh's Sunflowers painted in the style of Edvard Munch
@@ -1748,39 +1345,28 @@ A 3d render of a surreal landscape with abstract architecture, high resolution, 
 4k, photorealistic, very detailed robot wearing knight armor, sunset, arnold render, realistic lighting
 witches coven, fractal light leaks, dark forest, silk draing flowing, octane render--q 2
 two astronauts holding hands as the float in space toward a black hole and there galaxies being created behind them artistic photorealistic
-monkey holding a laser gun
 castle made of ornaments, 15th century, deep space NASA nebula, underwater coral reef, illustrated by John Berkey, Ralph McQuarrie, Bob Peak, Drew Struzan, Robert McGinnis, Greg and Tim Hildebrandt, Kazuhiko Sano, Ashley Wood, Tom Jung, Bill Sienkiewicz, yoji shinkawa, Bob eggleton, ethereal, ultra detailed, textural
 retro outer space glittery shiny planets girl flying through lost pink purple stars hyper realistic
 dark monster fighting a Mecha in a city, 4k, cinematic, realistic
-Nokinu
-fond ecran
 massive space battle around a planet with lasers and giant explosions, 4k, octane render, photo realism
-shark t-rex blizzard
 the word "HAVOC", cavern, jungle, ocean shoreline, river, massive city of skyscrapers in the distance at night, nebula in the sky, in the style of John Blanche, cinematic, dynamic lighting, watercolor and japanese ink drawing, watercolor splatter, bright, moss, rust, verdigris, oil, miami vice colors,
 Returning again to Mother Earth To set the fire and rain I'm turning again the circles of time To bring the sun back again surreal, symbolism, abstract
 a Kodachrome photograph of the Centre Pompidou
 in style of Jesper Ejsing, glitchcore map of abstract multiverse, corals ecosystem, japanese gold screen painting, surreal subduction zone charts , geological chart style, fractals, epic coral reef, vivid tones, wide angle,by Takato Yamamoto, breath of the wild, Paul Lehr, Sherrie Valentine Daines ,peter mohrbacher,
 love overgrown. in the style of Moebius and Akira Toriyama
 chicago, desolate at dusk, covered with thick fog and heavy snowfall, high detail, photograph.
-starry night + hell + modernist style
 3d particle, lidar, point cloud, dark alley, tokyo, houdini, 8k realistic, dof
 city feudal japan waterworld concept art
 pencil anatomical illustrations of a alien starfish on paper with annotations and scientific symbols
-center of the universe
 Sparth, Brom, opalescent, bats, dragonflies, robotic, transcendent, Incandescent, golden filigree, mecha, robotec, gundam, tetsuo, octane render, highly detailed and intricate, golden ratio, ornate, breathtaking, ethereal, ominous, gorgeous, cinematic, magical, awe inspiring, cinema 4d, cgi, cinematic shot, hypermaximalist, hyperdetailed, volumetric lighting, epic
 baby blue dragon in nest, disney style, 8k, octane render, high detail
-human iphone landscape
-batman, drawn by Peter bagge
 elegant snow leopard statue marble construction, high detail photography ultra realistic
 Lightning on a pool of liquid gold
 sleek militarised corporate police in uniform black outfit, streamline gas mask and shiny dark helmet that covers face, keepers of power in a time of turmoil, modern in a 19th century setting
-peacock , korin ogata
 realistic middle eastern women eyes
 A wry pretty woman with orchid color short hair, peachy skin blush, clever, devious outgoing and lively, wearing turquoise clothes, character, closeup headshot, mauve hair, wearing turquoise robe, in the style of Karol Bak, cgsociety, 8k resolution, detailed
 Cowboy in shaman clothing is greeted by a fiery angel, hyper realistic, octane rendering, high resolution, volumetric, lighting, 8k
 panoramic view of the biblical paradise, ultrarealistic, cinematic, 4K
-lemurs pandemonium spiral necronomicon cover
-Lilon Drumputts character
 tall beautiful elf man, glowing atmosphere, magical spires in the background, glowing eyes
 very technical and detailed blueprint of a biomutant pokemon, center frame, intricate details, ultra-detailed, baroque style, illustration, desaturated, concept art,with highly detailed blueprints, marker concept art style
 warrior with a spear sitting on a throne
@@ -1788,33 +1374,23 @@ cross stitch elven sigil for attracting the best opportunities, simple, drawn on
 Futuristic inthe style of Similo brutalist concretearchitecture, monumental amorphous organicstructures, viscous and thick opaque blackfluid, oil spill, heavy fog, gloomy, abyssal,morning light, no sun, extreme details 8k
 a human with a strawberry sprinkle donut for a head, running the chicago marathon
 man wearing arabic fight another man with sticks and people standing in old Egypt city 8k render with cinematic light high details
-a cat holding a laser saber 4
-A group of Exotica Dreaming Sycophants opening a Cosmic rip with their halluicination in a purple gothic cathedrall hellscape, wide angle, hyperrealism, photorealistic, volumetric lighting, cinematic, vfx, in the style of Ralph McQarrie, postprocessing, 8k render, Octane,
-magician with cards in a hellish scenery, realistic, cinematic
 King man with light crown, portrait, beautiful symmetric woman body, hyperdetail, photorealistic, by Andrei Riabovitchev
 industrial factory cathedral in the style of Hieronymus Bosch
 blue hourglass with wings with a Samsung watch inside
 the most twisted life ending fractal staircases
 another world full acanthus, landscape, cinematic, colorful, dark, complementary color, warm and cold, female shapes
 very technical and detailed Nintendo Gameboy blueprint + fantasy hero adventure
-the letter E
-cult of burning gold
-vampire logo
 spacecraft, battle, albator style, big
 a resurrection ritual bathed in moonlight
-steampunk demon in an electric chair surrounded by a scary steampunk themed prison
 Nach Christus gepurt. 1513. Jar. Adi. j. May. Hat man dem großmechtigen Kunig von Portugall Emanuell gen Lysabona pracht auß India ein sollich lebendig Thier. Das nennen sie Rhinocerus. Das ist hye mit aller seiner gestalt Abcondertfet. Es hat ein farb wie ein gespreckelte Schildtkrot. Vnd ist von dicken Schalen vberlegt fast fest. Vnd ist in der groeß als der Helfandt Aber nydertrechtiger von paynen vnd fast werhafftig. Es hat ein scharff starck Horn vorn auff der nasen Das begyndt es albeg zu wetzen wo es bey staynen ist. Das dosig Thier ist des Helffantz todt feyndt. Der Helffandt furcht es fast vbel dann wo es Jn ankumbt so laufft Jm das Thier mit dem kopff zwischen dye fordern payn vnd reyst den Helffandt vnden am pauch auff vnd er wuorgt Jn des mag er sich nit erwern. Dann das Thier ist also gewapent das Jm der Helffandt nichts kan thuon. Sie sagen auch das der Rhynocerus Schmell Fraydig vnd Listig sey
 skull faced aviator stuck inside a miniature world
-lucy in the sky with diamonds
 hyperdetailed deep field photo of space,
 a futuristic caravan from 2001 a space odessy, wide shot, 8k hd ultra detailed realistic
-Mulder and scully investigate
 and garments, short skirt, cute top, silver ornaments, sapphires jewelry
 the photography of dieselpunk stockholm
 jungle paradise with epic lighting and a fantasy twist, sense of scale, rendering, high quality,
 mmorpg, rov, fantasy world, Wild rift, heros, war, battle, dragon
 Arsene Wenger as Jesus Christ sitting on a cloud
-don’t look behind you
 guy in front a pc coding, neon genesis evangelion style
 Indian Godess stucks in the UK and she forgot her umbrella, black and white rain and fog
 nike shoes looking like a spaceship
@@ -1822,15 +1398,11 @@ tall anime man with white hair standing in a crater, hyper realistic, 16k, ray t
 beautiful green landscape with valley, sun casts a hot light across a moody scene, by studio ghilbli style cartoon, windy peaks, Mythology, cinematic, detailed, atmospheric, backlit, epic , no blur, cinematic , concept art, Matte painting, moody lighting, Clear sky, shafts of lighting, mist, photorealistic, concept art, volumetric light, moody, cinematic epic
 Centered composition, 3D rendering, Paris fashion, a piece of Chinese women's fashion, white, red and pink color, exquisite phoenix chrysanthemum floral pattern, silk texture, translucent tulle and silk collocation, Chinese style, exquisite ancient Chinese headdress, Miranda May Kerr, delicate features, psychedelic smoke and light background, trending on Artstation and Yohji Yamamoto
 self-portrait of Ryan Eggold and Barry Sloane fighting sad pink layer cakes in the desert at night during a windstorm in the style of gauguin
-mom selfie in front of tornado
-realistic cola food monster demon 8k
 rammed earth, carved rock, flowing, mountainside, perforated, grassy, modern, futuristic, glossy white, sinuous chateau, illuminated pool, vines, ivy, artificial lighting, desert landscaping, accent lighting, sunrise, mist
 Oni mask neon with fire on the eyes
 unicorns, rainbows, new york city, clouds
 photorealistic contemporary architecture in Egypt
-the letter K in gold color
 german shepherd bird made of ice crystals with sharp teeth, detailed, 4k, hyperrealistic, sunset background
-an antivax
 a comic book style image of a gardening batman
 the batman arkham knight concept art illustration 13:9
 fallen on it’s side skyscraper wreckage in dystopian cyberpunk Antarctica, gloomy, medium shot, vray, hillls, single light source, antenna, wires, overhead light, dramatic lighting, dark, wreckage everywhere, moody, spooky, cinematic
@@ -1841,75 +1413,48 @@ abstract music socre chart forming a cloud symphony fused with a dot to dot arch
 a scene in the style of German Expressionist film, old film still
 the reality barrier concept art
 anime adventure video game poster with armed characters, colorful, 4K
-ecologist fantastic adventure
 cute dmt creature in a nebula, multiverse, beautiful, serene, cosmic, magical
 cat with hat doing karate, Gustave doré style
-candy princess unicorn
 in the great hall of god's library, by james gurney + greg rutkowski, epic and stunning artwork, intricate details, overwhelming complexity, layers of profundity, containing all the knowledge of the universe, a floating glowing sphere at the center of the room, dramatic lighting, elite
 party on the steps of the library night
-vikings colonizing space
-a slavic mage casting a spell
 pikachu in the style of Zdzisław Beksiński
 a futuristic BMW driving into Ghent in Belgium in the year 2050, hyper realsitic
 an ancient marble statue, hyper-realistic, 8k, studio lighting, very detailed, photo of the year
-pikachu on drugs eating stuff
 white human skull gothic, ultra realistic, unreal engine, octane render,
-A fully ultradetailed and beautiful painting of a wizard with an evil smile , trending on artstation, pinterest and deviantart
 Rewinside fighting with Julian Bam on the Moon, in the background are some blue Explosions and a futuristic Spaceship. Yelly Beans and realistic, purple Stars are Floating in the Sky.
-glauque
 you don’t know what you are doing
 Wanderer above the sea of fog reimagined by Caspar David Friedrich, hyperrealist style
-cat sunbathing on the street
-A devil playing soccer, realistic
-steampunk hell with devils and demons
-cyberpunk Istanbul
 Upung man in Paris 2045 cyberpunk under a transparent dome
-evil dark warrior with short white hair and black eyes with huge sword, everything surrounded by shadows
 New Years eve in time square but every person is guy fieri and there are hot dogs falling from the sky photorealistic unreal engine
 CTHULHU , As a Old Vintage Sepia photography , Symmetric,collage , Cellshading,Inked matte painting
-steam punk star wars
 Bazooka, white background, designed by Jack Kirby, illustrated by John Berkey, Ralph McQuarrie, Bob Peak, Drew Struzan, Robert McGinnis, Greg and Tim Hildebrandt, Kazuhiko Sano, Ashley Wood, Tom Jung, Bill Sienkiewicz, yoji shinkawa, Bob eggleton, ethereal, ultra detailed, textural
-soldiers carrying flowers
-wild west saloon
-humanoid weeping spirit
 In the foreground on an apocalyptic battlefield - a group of heavily armoured Space Orcs are waging war
 genshin impact character battle hyper realistic 8k
 human-sized deer. 1800s clothing. tintype
 a welder welding a shipwreck under water
-thrive and decay,
 a yellow lancia delta hf turbo taking off from earth
 codex of angelic inspiration by Anton Pieck and Jacek Yerka, blessed transformation by Maria Sibylla Merian
 a portrait view of a ninja-geisha with a glimpse of neon red and a glimpse of neon purple
 the invasion, photo real, dark, cinematic, sci-fi, atmospheric, cinematic lighting, highly detailed, 4k
-dark and creepy and dilapidated room with a painting of hell glowing red
 female vampire, flirting look, full body, extremy long platinum blonde hair, luring, wearing red and white leather corset, portrait, round sweet face, beautiful, symmetrical face, wlop, soft light, high detail
 &lt; light pink Cherry Blossom,Disney Castle,clouds, dramatic clouds above,dreamy, Many Flowering cherry,A few Flowering cherry,ultra wide shot, Magnificent and fantastic John Howe landscape, pink clouds, Fairy tale, atmospheric, hyper realistic, 8k, epic composition, cinematic, octane render, artstation landscape vista photography by Carr Clifton &amp; Galen Rowell, 16K resolution, Landscape veduta photo by Dustin Lefevre &amp; tdraw, 8k resolution, detailed landscape painting by Ivan Shishkin, DeviantArt, Flickr, rendered in Enscape, Miyazaki, Nausicaa Ghibli, Breath of The Wild, 4k detailed post processing, artstation, rendering by octane, unreal engine
-jesus monochrome
 painting of a sci-fi futuristic space elevator by Jon Berkey
-raining in the crimon valley
 Lisbon drawn by Moebius, landsapce, 16:9, Cinematic lighting, Detailed, Environment, Illustration
 dark and gold geometric background to use in webdesign, character art, video game style, final boss, unreal engine, vfx, cinematic lighting, photoreal, insane details, hyper realistic, symmetrical composition, octane, concept art,
 concept art, colorful, rule of thirds, Baptist John baptize a zombie in Beijing Palace Museum, trending on Artstation beautiful
 Rusted mecha robot reading a magazine on top of a skyscrapper, hyperrealistic, 8k, photorealistic, extremely detailed, ar 16:9
 bird's eye view, plants growing in the living room of a dwelling house, green trees and bushes growing inside the monastery, white light, by james jean, Art Nouveau, trending on artstation, abandoned sleeping camp inside the monastery, wide angle, bright shadows, 8k, hyperdetailed, cinematic
-devil meets the grim reaper in the cyberpunk city on night
 Frocen water drop on a golden table 3D render
-Joker evil smile
-dreadlock lilac cyan fox
 A big scene where a knight comes out of the snow to fight against a white lion, yellow and blue colors, 4K, realistic style, artstation, fantasy, rpg, octane render, back light, engraving, simple, clean, highly detailed, intricate
 a 3d framed portrait of billowing ornately stitched black silk cloth with detailed olivine and topaz patterns being absorbed by dense holograms that are transforming into magnificent doors, atmospheric perspective, style of masamune shirow, style of brian sum, style of satoshi kon, style of peter mohrbacher
-Portrait of a symmetrical winged gothic biomechanical demoness in high-tech purple dark neon cathedral, wide angle, hyperrealism, photorealistic, volumetric lighting, cinematic, vfx, in the style of Ralph McQarrie, postprocessing, 8k render, Octane,
 Back to the future delorean, graphic illustration, creative design, techwear, cyberpunk, concept art, graffiti, by ashley wood and Jamie Hewlett,
 a nebula playing guitar, realistic, album cover, 4k
-bmx rider in the style of the evil empire album cover by rage against the machine
 young Milla Jovovich as Ellen Ripley
-a one armed disabled female warrior priestess, she has only one arm in which she carries a gleaming blade, the other arm ends above the elbow as a stump, amputee, she is surrounded by shadows bathed in neon, horror, sci-fi, post apocalyptic, cyberpunk, fantasy, cinematic, dark fantasy
 desert of blue sand under a black cloudless sky with a teal glow on the horizon landscape
 a world sand and hot shattered glass int the wind, thunder and lightning striking this world while fire consume half the planet on a beautiful nice kind warmly background made of pastel colours
 1920s retrofuturistic paris by moebius jean giraud
 cyberpunk city at war in sand storm
 Ethereum will on the wisp in a swamp
-just crying
 a portrait of a female ninja with a glimpse of neon red and a glimpse of neon purple
 Silver Transparent translucent airship gleaming dirigible
 Sorrowful Grim Reaper, gilded gold, holding out hand, detailed, 8k, cinematic lighting
@@ -1923,51 +1468,37 @@ a man sat in an armchair watching an old television in a field in profile, very 
 fire god looking down on humans
 A cosmic god inside a dense DMT landscape, dramatic lightning, photorealistic, psychedelic
 adventuring party on a boat, trending, artstation, cinematic, hyperrealistic, photorealistic
-brodsky utkin woodcut
-technomancian mix with demon hell body cyborg cabal and technologie
 a titan from attack on titan carrying a building with Iranian architecture
 a beautiful european village on top a hill surounded with modern urban building, summer, butterflies and flowers everywhere
 aegis + shield + dark souls artwork
 the skarlet king a god ruling over universe
 Lady Death covered in thin veil floating reaching out to the moon, ashen particales, emotion, deep sea, eldritch, decay, dynamic light, unsettling
 a man looking at you with his eyes open
-socialist realism
 architectural model of the eiffel tower by daniel liebeskind
-purple icicle weapon
 Beautiful fury white cat, large topaz eyes, wavey long fur
 vintage mysterious monster with big eyes and mouth in small town with people amazed
 skeleton, Zdzislaw Bedsinski style, dark, highly detailed, heavy atmosphere
 hobbit house in the middle of forest, sunset, sun shining through trees, ray tracing, unreal engine,
 Walt Disney smoking weed inside Disneyland
 robots exploring ancient city, concept art
-a realistic cyberpunk samurai
 black paper, white tones, pumpkin illustration designed Marc Simonetti and Mike Mignola + intricate ink illustration
 medieval fantasy city, towering above a harbor in which a caravel lies anchoring, with cobblestone alleys snaking up a giant mountain pixel art
 suzu Hirose as Victorian steampunk cyborg warrior princess, wearing silver lace bodice and a bowler hat at the battle of helms deep, fog, flames, sparks, clear makeup, clean hair, dry skin, clear skin, airbrushed, bright eye makeup, face by Artgerm, warrior body, photo by mario testino and Charlie bowater, 8k octane render, cinematic, hyper detailed, micro details, insanely detailed, trending on artstation, concept art, Peter Paul Rubens and Peter Mohrbacher style, rococo baroque, insanely detailed and intricate
 Wizard doing a kickflip fisheye lens
-flamenco dance in battle field
 two cups of coffee hugging in a flower field
 human brain with bull horns brain bull farm brains brain cow horn bull field brainy pink matter golden hour 4k realistic photograph Polaroid
 children of the corn satanic cult
 Corvid creep ghoul, zombie-bird, hyper realistic, detailed, gritty, dramatic lighting,
-generative particle system
-brave by ham sung-choul
-&lt; mysterious cloaked skull, occult, horror, in the style of Mike Mignola and Duncan Fegredo by Botero, occult, horror, in the style of Mike Mignola and Duncan Fegredo
 Chinchilla wearing gold chains with lazers shooting out of the eyes
 alison brie as amy acker, aeon flux, style of darwyn cooke
 Space Chinese butterfly, nebulae, galaxy, very details, realistic, CGI Marvel, cosmic, epic, cinematic, epic light, insane detail, photorealistic, Beautiful
 angry pigeon invasion, photo realistic, unreal engine
 a ronin with semi long white hair standing in the rain full of sadness after witnessing thousands falling to their last breath
 Huge cave tunnel, many human figures in hibernation ,diamonds, large crystals, smoke, dust, burning crosses on the bodies, priest with wide open arms , scene,serene, dark fantasy, realistic, photographic-realism, stunning, spectacular render, sharp details, clear picture, movie-quality, detailed, golden ratio, rule of thirds, colour theory, sense of calm, unreal engine, raytracing, post-processing, zbrush, substance painter, trending on ArtStation, cgsociety, cgi, 8k, arnold render
-shyness inside
-rat snail hybrid
 centered figure of a man in a robe holding a grimoire with monstrous lovecratian entity lurching above him
 Peter Pan 13yo profile portrait ; leaf ; nature ; desat ; octane render ; hyperreaslism ; inspiration Benjamin Lacombe
-gun glass 3d transparent
-my eyes are burning
 Pipes, Wires, Tubes, rust, decay, skulls, bones, in the style of Giger, artofsickness666, and Nekro XIII
 The Top of a building imposing and futuristic buildings, Night time, neon signs on buildings, Cyberpunk, Beautiful architecture, Ceiling, Massive windows, flying cars, Atmosphere, Dramatic lighting, Epic composition, Wide angle, by Josan Gonzalez, trending on artstation,
-Ai
 2 metres muscular black man with four arms, manga
 arab king sitting in his throne wearing traditional clothing
 small house floating in space, expressive gouache illustration, wide angle, octane render 8k
@@ -1987,74 +1518,50 @@ Portraot of a Winged Boy in Paradise, painting by William-Adolphe Bourguereau
 pile of gems and gold + symmetrical eyes, detailed, stunning, accurate details, clear clean, artstation trending + photorealistic
 A hyper-real 3D render chinese zodiac chicken head upfront head portrait, red copper gold Symmetrical tarot card artstation, cgsociety, beautifully lit, hyperdetailed, beautiful lighting, artstation by James Jean, Moebius, cory loftis, craig mullins, rutkowski, Mucha, Klimt, chinese ornate
 endless liminal claymation spaces with abstract stained glass by matisse and Jules Lavirotte, with shadows, arches, high octane render
-Doctor who by Edward hopper
 Dystopian church of scientology altar, cybperunk
-forest road
 zen nature minimalistic mexican tones
 parametric california sunset design by leonardo da vinci
 a telephoto shot of my secret mansion build on top of a great waterfall
-futuristic chibi robot cat + concept art + designed by moebius + inspired by Hello Kitty + detailed + technical drawing + glowing neon, octane render
 mmorpg, rov, fantasy world, Wild rift, heros,
 psychedelic technicolor, fractals Mandelbrot, dripping consciousness, in 8k hyper realistic
 monet, bed, woman, modern, morning, furnished apartment
 brutalism future city with air traffic, giger style, 8k render, octane render
 nature morte of our modern society in late capitalism, highly detailed octane render oil painting
 death in the style of Hayao Miyazaki
-dark science photo realistic
 a beautiful organic interior home, blu color
 lightning filled sky over a forest
 1920's overweight handsome man wearing a hat and being on the brink of insanity, realistic
 wildfire in woods with steep cliffs and cliff in shape of gate
 Skeleton Samurai, Green, Poloroid
-cosmic golden egg
 Gothic Greek city, Arctic evergreen jungle, farms, river, fantasy art
-1
-digital art of black monolith from space in foreign desert demonic photorealistic dreamlike ultra-wide angle lens volumetric lighting
 shiny armor knight as cyberpunk
-A man drowning
-isometric dna treehouse
 dante from Divine Comedy doing shoppin in polish store biedronka
 realistic landscape with horses in a city between Paris and New York
 ancient greek-inspired islander king, tan skin, colorful robes in the blue and turquoise of the ocean, luxurious fabrics, pointed ears, gold decorations, copper bracers, black hair, atlantean, artstation, character concept
-temple of elder gods,horrorcore, 8k matte, datamosh ,glitch, cosmic horror, ultra detailed, fine detail, realistic texture, giger
 early 70's Sci Fi metal plant industry
 horned goat bonsai high definition 8k
 the viking army attacked the sky army with bread and sausage
-christmas balls
-wolf in sheep's clothing
-Coffee Ghost
 jedi and sith light saber battle in a destroyed mosque in mamluk old cairo
 long shot of an interior 17th century French country workshop with walls very roughly carved from chunky white stone and thick oak beams
 suspicious person on the streets of the shanty town at night. Noir. Crows flying on the night sky
 confusing structure, complex geometry, glass, glowing purple fog, low glow, vintage chair in the middle, cinematic, detailed, realistic,
 garbage city,realistic,hdr,dystopian
-war in lovecraft style
-cosmic sacred geometry
-rainy blade runner street
-scary terrifying ghost from hell designed by hr giger
 candle on a table in the indoor temple japan, manga, dark, obscure
 eautiful cartoon hipster girl, professional model, pose, wet, feeling joy, brown short wavy hair, 20 year old, slim, looking away, good looking, very nice, portrait, wearing pajamas, cinematic matte color, 8k, octane render,
 White Knights with Red Banners in a Dark Forest near a river, black horses in the background, by N C Wyeth
 a flooded futuristic New York with nature taking over 8k landscape
 geometric mask luchadores on an ice table
-water turtle
-cyberpunk lincoln
-photograph of Dante’s inferno looking up to infinity from the ninth circle in hell
 surreal photo of a lady chopping a tree at night
-raccon by WLOP
 colorful aztec stone column game assets concept props, ghibli zelda ori style
 a glitch in reality concept art
 1890s, A vase with beautiful roses blooming on a worn table.pastel colour,beautiful lighting, rim lighting, oil painting，HD Detail
 beautiful portraits of a fat Indian woman as royalty dancing with light blue flowers at dawn
 mother looking at bassinet with her baby, 8k, walt disney style, bright fun colors
-flat earth
 stunning alien landscape designed by Brian froud, 35mm photograph
 girl looking at a cute rabbit inside of bushes full of green leaves ghibli studio style 1920x1080
 painitng in the style of Jean Paul Riopelle
 weathered beach glass scarf, 8K scan (detail): soda bottles, industrial caulk, industrial grinding lenses, cut glass fimo brocade brooches QHD (detail), fine hypercolor prism-water fabric splashes through heavenly high def mirror (detail)
 the dark mage opened a cosmic gate to the center of the universe
-The evolution of humanity
-jdilla in a room ghibli
 hyperrealistic image of the world ending
 steampunk post apocalyptic warrior woman
 audi car in a cave+Mist wreathed the CAVE,Stereoscopic and dramatic lighting,epic performance,cinematic light+dark colors,high quality digital art,photography,unreal engine 5,hyper quality,--ar 16:9
@@ -2071,44 +1578,32 @@ face draw in cross hatching style
 16K H.R Giger seamless victorian style machinery wallpaper
 orange octopus costume in the style of Japanese childrens tv
 portrait of smiling giraffe with light blue background, close-up realistic photograph, award winning
-gray Aliens in h giger suit
 Portrait of a woman, age 32, Evelyn the Erotimancer, full body portrait, curvy body is composed of alien flora and wet latex, eroticore, chaotic fractal backdrop, style of Elena Masci Alexis Franklin Tom Bagshaw and Spencer Tunick, cinematic, hyper-realistic, matte painting, enhanced,
 wooden cabin in the Meadow and brook by ivan shishkin
-harp seal wearing aviators
 great scene with a Spartan giant ready to fight in the dust, white and blue colors, 4K, realistic style, with snow, artstation, fantasy, rpg, octane render, ray light, back light, engraving, simple, clean, highly detailed, intricate
 imagine persian illumination engraved on stone hyper realistic: hyper detailed : 3D : octane render :
 a harbor in South Africa right after sunset, savannah, waterfront, city skyline, jungle, 1920s, world of darkness vampire the masquerade, painted, highly detailed, chiaroscuro, high contrast, dynamic lighting, cinematic, grimdark
 gigantic sleek red mechanical dragonfly in space
 rabbit girl open buried treasure at the bottom of the ocean
 retro dark vintage sci-fi : : 2D matte gouache book cover illustration : : deep space quantum sci-fi world
-Sheleeart bloom technique
 wildfire in woods with steep cliffs
-gangster vivaldi 6x6 AK47
-The cursed souls of the damned
 Never ending labyrinth seen from above. 4k
-dystopian future enslaved
 Tifa from final fantasy 7 walking in Midgard.
-dr Doom, portrait, symmetry, Peter mohrbacher, monochrome color palette, detailed background, cinematic, atmospheric, horror, deep aesthetic, octane, trending on artstation, uplight, 8k
 multiple people, asian olympic athletes, adidas sports outfit, sportsmanship, cyan orange pink color scheme, gradient noise texture, energy explosion, dynamic posing, full body, pixiv, studio trigger, studio ghibli, rule of thirds, by Artgerm and Ilya Kuvshinov, face by wlop, charlie bowater
 I can see the skeletal ones dancing!
 orchid hummingbird, hyper realistic,
-Rumah adat tradisional
-a logo for ashton
 a castle made out of candy in a faraway land, cinematic, atmospheric, clouds made out of candy floss
 Lucidique, female cenobite, black leather clothes, long dreads, cyberpunk, steampunk, splatterpunk, ultra-detailed in the style of Ken Kelly, Craig Mullins, Vallejo and Frazetta, Clint Langley, artofsickness666, and Nekro XIII
 people traveling in time from a moving train at full speed in the jungle with a skull in the background inside a dome made of webs
 dark alley,rain,4k,cosmic giant riding skateboard
 close-up of geodesic bat skull, black and silver
 a photorealistic illustration, in the style of Leonard Foujita about a superproduction, workaholic and addictive production,
-tron disco dance
 Bounty paper towel, fighting a spill monster, in the style of a 1950’s travel poster
 heretic alien necromancer in space suit realistic
 Depression is eating me alive from the inside out
 HUGE guillotine to the left, in barren land, black and white, oil painting style no people --wallpaper
 ancient forge on the bottom of the ocean, fusion of star wars and gothic revival architecture, by marc simonetti, natural volumetric lighting, realistic 4k octane beautifully detailed render, cinematic, 4k post-processing
-Moonrise Kingdom film style
 blame society, ultra realistic skin anatomy, human wasp, gas mask, leather jacket, ambient occlusion, desert background, cosmic nebula sky background, octane rendering, 8k rendering, global illumination, weapons, overlay line art, anime colourful, manga, Leonardo Da Vinci anatomy notes,
-the old steampunk botanist
 native american totem realistic
 telvanni yellowed pitted, flat, organic, blotchy, top down view, seamless
 astronauts sat on a rocky, high ridge, watching a distant space port with various space craft docking with intricate infrastructure, the air is dusty and red, cinematic, photorealistic,
@@ -2116,72 +1611,45 @@ astronauts sat on a rocky, high ridge, watching a distant space port with variou
 Moebius style landscape with crystals
 image for a movie poster named "the essex connection" about teenagers leaving for collage in the style of dali
 and 1930s' adventurer between indiana Jones and Brendan Fraser, dirty, full costume, with a riffle, standing next to a 1930s' truck in the middle of the desert, realistic, octane render, made by Craig Mullins, intricated detail, ultra detailed,
-hyperboria
 hyper realistic, hyper detailed black and white stippled illustrations of giger style baphomet, octane render, unreal engine, trending on artstation
 in the center of an european village at the marketplace, summer, sharp lines , 8k, realistic
 huge underground cave, stalagmites, ghosts in black cloaks, marble altar, dark color palette, end of the world, mysterious, hazy, dark landscape, eerie, sinister, melancholic, depression, void, abyss, desolate, darkness, HR Giger, bioorganic, biomorph, octane render, Zdzisław Beksiński, Beksinski, John Martin, 8k
-clown cat laughing
-mech portrait
-whale flying baloon
 heart of figs, leaves and twigs
 a moebius art, mist,, hyperrealistic, octane render, highly detailed, hyperrealistic, aspect ratio 9:16, 8k resolution
 mech warehouse, ultra realistic, 4k
 portrait of a buddhist monk face photograph by steve mccurry
 closeup view, Animation art, studio ghibli style, fantasy feeling, Clear reflection, In front of the mottled red brick low wall
 lord of the rings style, indian architecture inspired massive, ornate walled city set in the great plains, lake in the distance, surrounded by gardens and orchards, collossal scale, sunrise, sunset, rain, wide angle
-prehistoric power rangers
 seedy city, pink neon sign of the number 5000, 4k
 a beautiful Ethiopian princess wearing jewels, vibrant colors, style in oil paint, real life, photograph, cinematic, volumetric lighting, backlit, Filip Hodas,
 fiery runes in a circle on the beach, Lovecraftian, vibrant colors, style in oil paint, real life, photograph, cinematic, volumetric lighting, backlit, Filip Hodas,
-Basel
 Mario and Luigi in junji ito style manga white and black
 female humanoid robot wearing an ornate crown sitting on a throne in a palace, ArtStation, highly detailed, painterly style,
 a Greek statue, male body, disintegrated, falling pieces, decay background, white, gray, dusty, hyperrealistic
 floral arrangement by Tim Walker
 A group of armed researchers shooting forest creature with rifles and run away in the woods, grimdark, 8k
-engineering Drawing
-Scarlet, The arcane shadow
 nasa 1969 astronaut walking in meadow shot with old camera, found photo, 35 polaroid 70s flash photography, astronaut is looking up
-Yoda playing basketball, 4k
-face of an immortal emperor
 a fat melancholy obese showman next to a caravan on the edge of a river, in a fairground colored with neon, a realistic Ferris wheel. night movie scene. rendered realistically in the city. some gothic building. 4K artwork
-35MM,portrait
 pastel raindrops curious bird art
 a beautiful Water Kingdom nation, not bright, full of color, detailed
-girl who uses nunchaku
 The blueprint of the mountain villa would include a large, open living room with a fireplace, a kitchen with a breakfast nook, and a formal dining room. There would be a master bedroom suite with a private bathroom, and two additional bedrooms that share a Jack and Jill style bathroom. There would also be a den, a laundry room, and a two-car garage. The blueprint would also include outdoor living spaces, such as a deck or patio, and a pool or hot tub.
 ballpoint pen scribble drawing rug
 half-spider man, half-batman, 8k, realistic
 a giant faceless green man flying and dancing in the air. Mardin, darkness, night. Music concert, hologram, glitch, foggy. Unreal engine 5 render, by dawid planeta
-Girl Angelology thai style
 ancient greek-inspired islander king, tan skin, colorful robes in the colors of the ocean, pointed ears, gold decorations, copper bracers, black hair, atlantean, artstation, character concept
-future of Islamabad
 a beautiful, colorful crow photorealistic
 April 28 in the hospital yard in the smell of the dusty sun dark angels met + cold color + dark art + 8k + black metal
-eldar wearing venom
 I was in peace but the fear of being caught scared me the most.
-Messi as Mother Teresa
 walter white as a van gogh portrait, simmetric face
-website design, blue
-cybernetic necromancer casting spell and floating over forest at night, wide shot, horror, cinematic, dark, 8k, highly detailed, octane render
 clown with giant smile happy-overdose, hyper-realistic,
-lightning in a wine bottle
-insomnia glitch
 movie poster of a young blonde woman wearing a leather jacket haunted in a big city
 art nouveau tarot card fool but the fool is a bodybuilder
 then you saw a movie with your cousin
-4k Horror Pokemon High Detail Charmeleon in Tim Burton style legend of scruffy
-love as Persians
 highly detailed streets of a japanese futuristic city, designed by Junya Ishigami, facades made by polished metal structures, mirror-effect sheets of water on the floor, many people wearing robes walking and standing, neon lights in the facades, foggy atmosphere, early morning sun, concept art, sci fi, cinematic, trending on artstation, realistic, 20mm camera, corona render, rule of thirds, hyper detailed, insanely detailed, cinematic lighting, cinematic art, ultra-realistic, real image, wide-angle image, Unreal Engine, ambient occlusion, realistic, corona render,8k, octane render,
 large shot of the most beautiful nun ever seen in 1930, look like Eva Green, realistic, 3d rendered, backlight, realistic lighting, Vray Engine render, full costume
 basketball shoes inspired by the planet neptune, photography, 4k, photo-realistic,expensive, highly detailed,
 Versailles castle, post apocalyptic, lush vegetation, Angkor wat, trending on artstation, 8k
-gaming penguin
-inside abandoned church
 Colorless green ideas sleeping furiously
-a futuristic vintage house
-Winged Warrior, raining hell from above: HD: Iridescent: Lofi: Digital Art: Hyperdetailed
-zombie italian parliament interior with zombie politicians walking, realistic modern 4k cinematography, splatter horror, green white red shades
 pastel painting, dark color, trash, young men, Angular face, small eyes, thin face, smooth dark brown hair, medium length, 3 days super short beard, thin mouth, long nose, red Leather perfecto, rocker style, big forehead, squint eyes
 Ciroc Vodka bottle product photography hyper detailed, trending on artstation, 3d model, 4k, octane render, ar 3:4 uplight, ultra realistic, high detail cinematic
 Spider Sci-fi mechanical engine, Science-fiction, Marcel Deneuve style, Very realistic, High details, Landscape, Vray
@@ -2192,19 +1660,13 @@ puente Nuevo Ronda Spain, giant blue donkey halfway up hill that supports bridge
 Three Bogatyrs Chase the Monolo-Tatar Yoke Out of the Bath
 totoro dressed as a penguin is sliding through the desert
 adult strong man with a short beard and a short mohawk buzzcut wearing a shirt and a tie
-a godlike skeletor
-Architectural Drawing of a cow
 Macro photography of wood fibre in a subtle 3 tone colour gradient, photorealistic, highly detailed, wood worm, fluorescent vibrant colours,
 man ridinga horse through a lightning storm, cinematic, by ILYA YEFIMOVICH REPIN
-penguin wedding photo
 vintage footage of a tesla plaid car with victorian era crowd looking in curiosity
 the chief's vision of a man with 26 symbols in a briefcase reporting the news kodachrome photographic style
-Krang from teenage mutant ninja turtles. Ultra realistic. ultra detailed. octane render. Rain and reflection. Epic lighting. Epic atmosphere. Creepy. Horror.
 overgrown city, new york, destroyed, cepia, wabi sabi
 Angelic knight with big golden wings, full body portrait rune on his armor and holding a very long ultra sword, ultra-realistic,8k rendering, octane rendering, hyper detailed, hyper realism, cinematic, dramatic, ominous, symmetric
 saul leiter Polska szkoła plakatu
-chihuahua climbing a mountain
-❤️ 🧜‍♀️ 🦀 🌈
 a portrait of a light blue alien with insect facial features, wearing a suit, soft light, golden hour,
 mom and child standing in the doorstep holding hands, old house, super bright light from ufo shines towards them, in the style of andrei tarkovsky and steven spielberg, mystery, cinematic, filmgrain
 feeling of love watching fireworks with your lover
@@ -2212,17 +1674,13 @@ Macon GA 1890, William Henry Huddle
 man inside of the cafe drinking coffee wearing a trench cloak, it is raining outside, music in the cafe lighting up the area 4k cinematic
 black rock shooter BSR anime characters fighting
 SHAMBHALA, psychedelic, intricate, beautiful, high octane, cinematic, 3D render, beautiful, forest rave,
-teeth , meat , insects , cobwebs , snake , cyberpunk , ultra detailed, ultra realistic, photography, giger, cosmic horror, dramatic lighting,
 photorealistic Gundam standing over the body of a kaiju
 a sculpture of a sinusoidal wave made of black and red plastic, in a large museum room with a gold ceiling
-space of variations, zeland
 Donald Trump sniffing flour off Boris Johnsons chest.
 Badass Troll Chief with Charcoal Scarlet skin and short whiskers, dripping clear glossy slime, synthcore background, cryptopunk Teeth, big biopunk eyes, unreal engine 5, octane render, hyper realistic, post processing, lp -- seed: 369369
 Rachael from blade runner, sean young
 sky by Joyce Vincent, scifi, fantasy + digital 2d, traditional, matte painting, illustration, concept art, hdri haven + inspired by John Harris, Ralph McQuarrie, Doug Chiang, Phil Szostak, James Clyne, Neil Lamont, Josh Kushins
 divine beasts made in ancient times by sacrificing human souls
-The search for meaning
-dream world
 a beautiful Ice Kingdom nation, not bright, full of color, detailed
 sultry cosplay woman with cute red anime wolf ears, wearing a wearing a violet lace bra, visible belly button, sensuous facial expression + anime manga style, 8k, overheard shot, high angle shot, fantasy, cinematic, super detailed, vfx, post processing, hyperdetailed, high resolution + artstation, by Artgerm , insanely detailed and intricate
 A wizard tower at night with a storm rolling in and lightning flashing in the background the door is hanging open birds circle the ruined roof
@@ -2236,17 +1694,13 @@ Half of the earth is on fire other half is freezing, anime style
 a series of layered concentric Dyson spheres filled with haphazard architecture largely devoid of life in the style of tsutomu nihei
 when things got silly for millie, universe, night sky, stars
 pigeon contemplating its reflection in the water by david hockney
-a desert of raw wool
 cinematic, beautiful detailed owl sitting on a branch looking to the side, golden ratio, beautiful amber eyes, beautiful detailed feathers, layered black paper, puffy clouds, stormy, rich blue tones, baroque, Painted by Craig Mullins Marc Simonetti and Peter Mohrbacher
 /Ork shaman clothing is greeted by a fiery warrior , hyper realistic, octane rendering, high resolution, volumetric, lighting, 8k
 /prompt, futurstic architecture, domed buildings on a river, high detail, spa-like, tropical, photorealistic
 Terragen mixture of a beautiful green Allgäu misty landscape
 human consciousness In the 4th dimension, 8k hyperrealistic vibrant
 "Love is life, that we are, and so it is"
-necronomicon
 Tibet,light,angel,temple. realistic 4K--ar 9:16
-kaleidoscopic cementery, horror, unreal 5, artstation
-realistic brownie food monster demon 8k
 Rabid Black Cat : : retro vintage sci-fi : : soviet : : communist : : dark 2D matte gouache illustration : : anarcho-syndicalist flag
 Escape Hook, world of warcraft icon, fantasy, game style
 cat with hat doing karate, manga style
@@ -2262,15 +1716,11 @@ I've seen things... seen things you little people wouldn't believe. Attack ships
 creepy dark slime room full of eggs in prometheus
 infinite line of dead people waiting to cross the river Styx
 digital art monkey driving a motorcycle
-an eco friendly batman cartoon
 &lt; city in canyon, cliffs, art by Laurie Greasley, Josan Gonzalez, Moebius, intricate details, dramatic lighting, night, wide angle, hyperrealistic, rule of thirds,
 third eye opening device, anatomical, half-blueprint
 a hyperrealistic portrait of Bob Odenkirk as Saul Goodman
-good versus evil, life versus death, epic war, endless struggle, judgement day
 a massive stone chamber with high ceilings, a tree in the middle torn in half, tree on fire, stained glass windows, dramatic lighting, fantasy concept art, ominous, ethereal, wide view, high detail, destruction
 the God machine, hyper detailed, 8k
-Biker babies
-Fertility Goddess
 A beautiful Dawn on Mount Fuji with the sun shining over the peak mountain climbers are sending it is very filmic cinematic and warm light
 minastirith cinematic render 4k
 glass mannequin head wearing headphones, abstract soundwaves imploding into micro particles, highly detailed, photo realistic, epic, cinematic
@@ -2278,23 +1728,17 @@ dungeons and dragons fantasy pawnshop interior
 illuminated manuscript of a woman with a crown of thornes and dead flowers
 Medieval knight fractal marble statue : intricate strands of roses and thorns : baroque : neoclassical : rococo : symmetrical : beautiful : bound by chains of time : blooming flowers : wrapped in shimmering silk : volumetric lighting : cinematic lighting
 Futuristic slums of karachi in night, ultra details, 4k
-futuristic metro near a city
 tarot card with ornate border frame，The Empress
 young Tom Cruise as Marty McFly
-phonk music cover art
 zandvoort Haarlem holland beach happy people
-apocalypse, detailed, 4k, hd, realistic, red, horror,
 big fairy flower, intricate details, dark background, 8K,
 Twelve radial mechanical wings surrounding white azure full body GUNDAM Mecha, GUNDAM wing style armor, GUNDAM armor, samurai armor, mortar headds, mech suit, full body armor, lamellar armor, exoskeleto, symmetric, octane render, unreal engine, cinematic, ultra detailed, trending on artstation
 a beautiful, handsome dark hero in a spacesuit looking towards the infinity, blurry background, by charlie bowater and marc simonetti, ultra detailed, clear clean, 8k, background focus, portrait, cool pose, closeup, realistic, rendered by studio ghibli
 Manic syndrome is a state of abnormally elevated affect, and energy level, or a state of heightened overall activation with enhanced affective expression together with lability of affect
-salt monkey
 swirls of mist and stars against a city backdrop
 hyper realistic rainbowcore temple in the distance with a bioluminescent flower garden in front at sunset with atmospheric lighting, concept art, high fantasy, futuristic
 the void, kaleidoscope, fractals, bright colours, realistic, cinematic concept art, octane render, unreal engine 5,
-a white square
 A half-orc holding a large battle-axe in both hands and wearing incredible futuristic medieval battle gear
-Dyson Sphere around Saturn
 cat in gold plated armor, with a sword, standing on a battlefield
 Realistic childbirth scene with The Virgin Mary and Baby Jesus Christ
 a girl hugging Henry the red vacuum cleaner robot digital art
@@ -2302,7 +1746,6 @@ Donald Trump as a Dungeons and Dragons Illithid with tentacles on his lower face
 Necromantic Elephant Warrior by Dariusz Zawadzki
 twilight cemetery forest grounds, cobblestone path, leading to a marble stairtcase lit by tiki torches, and a large marble balcony overlooking the mausoleum necropolis. Painted by Craig Mullins
 heavily armoured nun soldier in ww1 trenches, character concept art, warhammer 40k
-man with the body of a dragon
 most beautiful heavenly forest, mystic, magical, movie like, realistic, lords of the ring style
 massive ancient sci-fi village, the matrix, dark city, brutalist architecture, tiny neon lights, cinematic establishing shot, dark horizon, sand covered world, moody, desert, 8k hyper detailed, octane render desaturated green
 ancient rome in a dark cavern, indiana jones pointing
@@ -2314,9 +1757,6 @@ a Samurai red black clothes, silk, shaman, torch, fire, ancient festival, harper
 codex of angelic devonian era by Anton Pieck and Jacek Yerka, blessed cambrian era by Maria Sibylla Merian
 dungeons and dragons 3 characters standing prepared before the cave entrance high detailed
 marble sculpture of fallen angel warrior with broken wings, feathers made of knives, studio photography, spotlight, hyper realistic,—ar 9:16, cinematic lighting, flat studio background
-mochabyssal
-trendy new age carpe diem
-“Xin Ping” by “Jonathan Yeo”
 destroyed bridge morning cloudy sean gordon murphy
 claymation cute chibi bonsai tree
 skull made of black lace, unreal engine, portrait
@@ -2331,31 +1771,19 @@ indian girl portrait with smile looking to mirror
 massive ornately carved Shangri-la temple gate at the end of stone steps, space atmosphere, extremely large doorway in dark space and floating orbs , by Bocklin and paul Lehr , John Harris
 a beacon of golden light shining through two colliding stars and lighting up interstellar space
 Psygnosis videogame box art, AWESOME, Egypt, fantasy game
-pretty woman in the sunshine
 Modern architect, utopistic, cinematic-,
 a metal planet orbiting a dying sun in space, cosmoc, galaxy, futuristic, gothic, sci-fi, brutalism, hyperdetailed, Cinematic, Kinemacolor, Massive, Artstation, 8k
-eurorack synthesizer,
 the solar system under absolute zero, photorealistic, 3D, planets, space of stars, unity renderer
-Hasselblad H6D-400C Multi-Shot, high definition, internal anatomy, brains, bones, meat, very detailed, melty, mutated, horror, pictoralism photography
 White renaissance imperial white city gate with armored guards
 La Gioconda as a decomposed creepy ghoul dappled lighting, cinematic, photographic, realistic, highly detailed, matte painting in the style of Gustave Dore, John Singer Sargent, artstation
 dark occult gothic fantasy warhammer, spell icon
-sentient strawberry with an evil plan
 throne that is made of ice and everything is dark with blue lighting from above
 group of childrens in a deep creepy forest
-red hood dc comics
-goldent wife photograph
 jelly candy lamb, front, bokeh, retro, realistic, detailed
-gaint slug snake
-epic floral city,
-Hand drawn fantasy map
 Escape from Tarkov, Night Warfare, bullet tracers, Neon
-yellow and blue lizard
-star guardian dog
 THE COSMIC GHOST TRAIN OF INSANITY
 candy land forest , clean a fresco style
 A blue rabbit in a tattered suit carried a bunch of pink flowers
-evil robotic nun on a spaceship, on the bridge of the spaceship, hyperdetailed, ornate, lots of indicator lights, photorealistic, cinematic lighting
 Two dark cloaked figures in the middle of the screen, golden halos, brown feathered wings with blade tips, both holding one golden crown, cinematic, details, moody,
 transparent house glass jungle detailed realistic
 a series of black statues along a cliff, at the side of a volcano crater surrounded by a green meadow in 4k
@@ -2364,65 +1792,42 @@ photo, sci-fi landscape, Martian, iceland, desolate, rocky, landslip, canyon, cl
 An arid landscape, junks and scraps
 gameplay footage of Walter White as a character in Fortnite,
 knight in leather armor with glaive in the style of da vinci
-heavy metal album cover
 An otter in a teacup in front of a space background
 A cute little robot in the shape of a padlock, purple, bet, money, casino, top hat
 an astronaut fishing in a small calm Japanese pond inside a wooded Japanese house photographed by Andrej Tarkovsky, kodak 5247 stock
-daemonhost character, Warhammer 40,000 style, possessed by a demon, contorted body, body hovering above ground, runes and sigils carved into skin, chained and bound, light beams from eyes, sci-fi concept art, w40k style, warhammer 40k style
 migraine hallucination with absurd and surreal composition, halo, bright lights, intense mood,
-il buon dario torrisi
-coulrofobia
-cave
 hyperrealistic 35 photograph of a man freaking out in the middle of his lawn, sunny day, wide shot, crowd of people laughing at him from across the street, hyperrealistic photograph, sharp focus, 4k
 bored ape yacht club partying in a neon club with a lot of people dancing under lasers
-poverty by andy warhol
 the last of us, bioshock, a field with cornflowers, wind, sun down, moody, vibrant colors, atmospheric, volumetric light, sunbeams, cinematic, 8k, hyperrealistic, unreal, artstation
-metaverse swamp unreal engine
 king of skeletons siting on throne in dungeon with blue fired torches, dark, 4k,
 do i dare disturb the universe?
 intergalactic wolfs emerging out of a sinkhole while floating around stars
 cosy futuristic clean city from far, high point of view, atmospheric, realistic
-last pharoah on earth
-ios icon, Jason Bateman, clown
-yoda smoking a joint
 Space chinese dragon, nebulae, galaxy, very details, realistic, CGI Marvel, cosmic, epic, cinematic, epic light, insane detail, photorealistic, Beautiful 8k render, arnold render aspect 5:7
 a pencil sketch of a male scientist, american, 52 years old, long grey hair, beard, not very orderly, rather big, charismatic and relaxed
 Mercy from overwatch fighting zombies
-batman logo
 Ryan Gosling holding a AWP in dust2, cinematic
 A luminous crystal in the cosmic starry sky is wrapped with roses. The rose path has luminous ovules and lava crystalline ginger. The art station trend of Blizzard style, magical light fog, nebula, night, low light, volume lighting, UE4, ZBrush, marmoset Toolkit - HD
 realistic dinosaur , by Ray Harryhausen
-👰‍♂️ 🦋 🌸 🌺 🌼 🏃 🌈 👗
 Portrait of young european female, rule of thirds, tsunami multiversal eruption in Renaissance Italy, depicted by Michaelangelo, cinematic, serene, visually stunning, octane render, accurately detailed, award winning
-demonic Joker
 planetary destruction, cosmic rift, Willem de Kooning style, Mondrian style, Ernst Kirchner style, Andre Mason style, modernist style, oil on canvas
 a toilet explaining the miracle of life to a monkey, octane render, artstation, very detailed
-magic library
-tokyo halloween street
-zombie teachers eating Ramen
 a huge military complex in the snow at night, mountains background, Unreal Engine, 4K, photorealistic rendery
 colored pencil linework and acrylic paint on wood panel, blue and grey, minimalism
 mystic ancient female warrior. Intense eyes and hatred. Pending war. Screaming for fight. Red fog. Intricate armor. Horns.
 hd studio ghibli anime, detailed, noface eating heads
 cute darth maul kitten furry 3D
 marvel superheroes, good guys, team, powerful, avengers, captain america, thor, hulk, iron man, high details
-The city of ravnica
 samurai style kimetsu no yaiba dancing with patrick star on the moon
-A dark haunted misty forrest + Lovecraftian dark geometric, Lovecraft, Gigger, horror, cursed, skin, dark runes, unholy, fractal, skull, bones, monsters + insanely detailed and intricate ,stunning, symetric, intricate accurate details, clear clean, artstation trending + dark, ghostly green, ruby + volumetric light, dusty light, photorealistic, f/2.4, quixel megascan
 spaceship at sunset in massif de l'esterel, photoreal, highly detailed, unrealengine
-universal consciousness
 submarine/underwater ruins/dystopian/grunge/volumetrics/4k/hyper realistic
 destiny and the different adversities, gothic, psychedelic, hyperrealistic, octane,
 a cyberpunk alley full of robots
-the sun hitting the earth
-A glass made human
 axolotl sailing in a yacht with tropical island on background
 skull bones soup served in a medieval dungeon, 4k, realistic, Arnold render
 rat wearing a white suit and black tie, acoustic guitar, handsome, concert, concert venue, roccocco, baroque, symmetrical, golden ratio, highly detailed, intricate ink drawing, Brian Kesinger, Don Bluth, Edmund Dulac, Goro Fujita
 extremely beautiful valkyrie with long wavy blond hair
-Full color nature drawing
 giant lovecraftian tentacle ukulele, Russian propaganda poster style, army of kittens marching, 8k
-cat french fries
 hyper photorealistic colorful cinematic view artstation anime girl with symmetric face and eyes concept art 8k ultrarealistic rendered in octane backlight lens blur ground fog
 a giant sinister brain attacks a city with dendritic tentacles
 une foule de robots dans une ville cyberpunk dans un style réaliste
@@ -2433,33 +1838,22 @@ cute dmt creature floating through a nebula, multiverse, beautiful, serene, cosm
 a furuturistic caravan from 2001 a space odessy, wide shot, 8k hd ultra detailed realistic
 link from legend of Zelda, 8k concept art,
 cycling next to the Eiffel tower
-Cybernetic trash robot
 bright abstract gouache painting of 50 tiny fresh green leaves collection with 40 pieces of tiny fresh fruits on pink background
 a duck human eldritch hybrid fantasy illustration
-science fiction reality
-mmorpg, rov,
 Michael Jackson concert on Mars
-cesspool of ignorance + signs of the Swarm + horror + cinematic + hyper detailed + 8K
 fantasy medieval steam punk city, stylized game concept art
 colorful fur brain hyper realistic
-cosmic whale on the milkyway
 deep universe according to physics . Hyper Realistic. Detailed. 8K. Cinematic . 24mm f:2. Best Image.
-a sky full of flowers
 a close up detail of a transparent modern house made of a semi transparent lightweight colored fabric material . Transparent colored Lightweight fabric material stretched as a facade . Inside of a Room
 portrait of an gentleman's club ape smoking a cigarette, hyper realistic cyber punk style
-cambouis
 great scene with a viking ready to fight in the dust, yellow and blue colors, 4K, realistic style, artstation, fantasy, rpg, octane render, ray light, engraving, simple, clean, highly detailed, intricate
-cosmic sounds
-Waco Gender Reveal
 elden lords contemplate the glorious Leyndell nimbed of a golden light
 portrait of two men, standing on a small broken ship, chasing a whale, in the style of Gustave Doré
 retrocore man with a nuclear explosion inside his ribcage
 British punk portrait, dirty face, black messed hair
-&lt; &lt; &lt;
 Japanese shrine with the moon glowing + cinematic + 8K + uplight
 an endless stairway in a gothic cathedral with skulls as ornamentation, intricately detailled, dark and brooding atmosphere, sparse illumination by candles, photorealistic
 a game style map of a gothic faerie empire with many mountains, forests, and valleys by mike mignola
-THE STRONG SURVIVE
 ukranian kids protecting their own land
 **2 figure in zero gravity covered in splashes and strokes of paint, volumetric lighting and smoke, colourful flowers exploding into bloom everywhere. Arranged in the golden ratio. hyperrealism, biblical, baroque, clouds, pastel blue and pastel pink, feminine, muscular, flowing cloth, arnold renderer, renaissance painting, crystals, rays of light, trending on artstation.
 dark haired military woman + angular + model + short hair + thin + military uniform + sci-fi + Battlestar Galactica + The Expanse + space + Ripley + Elodie Navarre + Noemie Merlant + Native American + Rachel Zegler + Portrait + India Summer
@@ -2467,13 +1861,11 @@ a water nymph meets a human for the first time in the style of Ryan Hewett
 multicolor space, hyperrealistic
 Hundreds of magic archers on a hill in the distance, glowing blue magic, mage-archers, army of archers, HD, 4K, Fantasy, Highly detailed
 little twin stars sitting on clouds, cute, photorealistic
-infogragph about war in syria
 gebran bassil as a muppet, photorealistic, photography, portrait, 8k
 portrait of a beautiful pink haired woman wearing kevlar armor, ivory rococo, wings lace wear, octane render, lovely woman, slight smile, face like Amber Heart, in the style of emil melmoth, zdzislaw belsinki, Craig Mullins, yoji shinkawa, tsutomu nihei, Peter mohrbacher, zaha hadid, epic scene
 smoking ruins, volcano in distance, fire, lava, hyper realistic, epic composition, cinematic, 8k
 World Press Photo of the Year, contemporary issues
 The king on his throne, in the city of Atlantis underwater, wide shot, concept art, atmospheric lighting, moody, paint, dark, craig Mullins, bloodborne
-rainy bus stop
 Amorphophallus titanum, voracious carnivorous toxic plant, insectivorous plant, style of dark souls, top view, realistic, dark fantasy, dungeon and dragons, scary, botanic, nightmare
 An epic battle between Jedi and the Roman Legion inside of the death star spaceship
 vampire geisha, skeleton body soldier with wings, futuristic, bone crown, female, creepy, fangs, horns, full body, mourning dress, razor wings, armor made of snakes, wires, pipes, cables, razors, latex, stockings, corset, highly detailed, photography, collodion, smoke, rain
@@ -2483,72 +1875,51 @@ a unicorn piñata with a leather harness exploding with glitter, cinematic, phot
 black metal logo veins clouds of scarlet red smoke
 high quality diamond engagement ring
 Shagan Plaatjies holding a sword in the rain while skateboarding with serious face, dreadlocks hairstyle
-Goku and mewtwo fighting
 black and white photography portrait of Beyoncé with an adidas branded crown
 kurt cobain looking out a rainy window, vintage magazine, vintage collage, grime
-hyperactive listening
 bob the sponge portrait inthe style of oil painting
 mordred artstation pixiv M4 Miv4t
 Edinburgh street in the style of 80s computer line art
 juice wrld concert in the heaven 8k
 retrofuturism rocket ship for mushrooms, octane render, neon light halation, 8k resolution
-1970s Kurt Russell (1977) as Johnny blaze the ghost rider with a flaming skull wearing a biker jacket occult horror in the style of Ashley Wood and Kent Williams
 half beautiful woman half gerald of rivia full body fashion photography for vogue magazine wearing big ruffle dress,
 emergency medkit bag, centered, photo-realistic, trending on artstation
 a black and white film photo of an enchanted obsidian pillar in the night, white crows flying, field of white flowers, black and white, dark, atmospheric, vintage, lo-fi, slightly noisy, old, painting,
 I wanna watch the world burn in front of my eyes, painting by Leonardo da Vinci
 cyberpunk, eye visor, cyclopse glasses, full face, chrome
-post apocalyptic havana
 Li-Ming build orb, anime style, symmetrical face, symmetrical eyes, two identical symmetrical eyes, portrait, beautiful girl, artstation, trending on artstation, gorgeous, smooth skin, cutie,
 visionary art, futuristic hallucinogenic hyper detailed
-circles of Hell, world of sin, black smoke, dynamic lighting, very detailed linework, textured, artstation, octane render, concept art, graphic novel, immateriality of Nekro XIII
 3d lidar scan point cloud of a cat
 gods light exploding from inside Moses tent ofmeeting, vast open desert background,
 Sesame Street characters working a butchers shop
 macro, atom dancers, ultra surreal, 8k, Fractal, very detailed, octane render
 a rough pencil sketch of a girl with medium curly hair and baggy eyes, standing up
-guitar line art
 art pop parliament funkadelic psychedelic funk
 most aesthetic michelin starred dish
-life
-the perfect soul
-17th century bodyhorror peasant, pregnancy, womb, tron, gel lighting, stan winston studio, worm, spider, slug, dark, moist, creepy, highly detailed, 8k, photo realistic
 gorka atarés digital photo 2000 summer vacation family
-robot girl in a 1920s cabaret
 cute zoomed in girl from a movie, with long purple hair, face looking into the camera, symmetrical eyes
-futuristic paris
-art nouveau esoteric sun
 beautiful girl with golden jewlery on her face, artistic makeup, two simetrical eyes, simetrical face, art deco style, poster
 misterious silver fog in the magic immanent birch tree forest
 Portrait of "Eduardo Reynaud" by Klimt
 A pink digger with two large robotic legs that looks like a robot
-a pregnant reaper
 flat doodle plant shapes, abstract, boho aesthetic,vector art, 2D, on white background, pastel colors
 a beautiful teen human boy, noble bard, fantasy, detailed portrait, intricate complexity, in the style of Artgerm, Kazuki Tanahashi, and WLOP, quixel megascan,
 paddleboard racer on the water with sic maui race board
 hyperrealistic, landscape, day, mountain further away
-racecar in a vast wasteland
 hd, high resolution, high rendering, realistic, 8k, mystical magical arcana tarot card deck with magic particles around it
-ice fish
 clockwork elf portrait detailed
-A samurai on the water with red highlights a red sky with mist, red moon in the dark night, dark theme, horror theme, red colors, epic, 8K, cinematic, high-saturation, high-contrast, dark fantasy, ultra-detailed, hyper-realistic
 a watermelon with legs running a marathon wearing a suit made of leds, octane render, chromatic aberration
 skinny white stone mecha anime sculpture, transparent skin, motion blur, snow, foggy, by Giovanni Fattori
-Azur et Asmar movie poster
 Latina walking in downtown San Francisco turquoise cinematic
-beautiful woman goddess bare cinematic smiling, beautiful, gorgeous, alluring, belly button exposed, revealing hellenistic clothes, portrait, fantasy atmosphere, mystical, magical aesthetics, illustration, by WLOP
-large snow-capped mountains
 Ghosts walk among people vacationing on the beach
 beautiful white flower wedding gown
 a Valkyrie, on a battleground covered with bones, high details, fine art, hyper realistic, clear image, dark cinematic, octane render, unreal engine 5, photorealistic, photographed
 El Pez Que Voló, cult movie poster from 1950, featuring a huge flying fish surrounded by a crowd of multiple strange characters singing on stage such as a flying fish, bird, deer, peyote, psychedelic choir, where is wally
-Rick and Morty Hobbits
 Captainsparklez as a rapper realistic
 Sasquatch Monster, detailed, real, octane render, unreal engine 5
 tiny firelight in gerhard richter painting style in orange space
 The king on his throne, Atlantis underwater, concept art, atmospheric lighting, moody, paint, dark, craig Mullins, bloodborne
 scene from a hallmark christmas movie directed by David Lynch, atmospheric, suspenseful, eerie, creepy, hallmark special, photoreal, high detail intricate, artstation, cinematic color grading,
-ride or die, mountain biking, extreme, in hell, no fear, no pain, downhill
 peter zumthor themed tranquil interior espacio reflecting pool
 lamppost on an empty street illuminating a strange man, wide angle, film noir, black and white
 metaverse ankh , vaporwave, unreal engine
@@ -2557,7 +1928,6 @@ Van Gogh flowers in a style of Salvador Dali
 spiral galaxy inhaling up New York City
 insane dark insect with big head ultra realistic, 4k, photorealistic render, ultra detailed, cinematic,
 cyberpunk, robot, cinematic lighting, Stijn Windig, Satoshi Matsuura, Alejandro Burdisio
-Moon face lit by night candles
 vikings and samurais team up against the crusade on big battlefield, in the style of paul chenavard
 greyscale anatomical heart in geometric style
 a beautiful composition of a glowing psychedelic spirit animal cyberpunk shaman technomancer on a magical bicycle riding through many illuminated portals to other dimensions
@@ -2567,49 +1937,34 @@ drawing of an fighting aztec warrior with spikes, red background
 Sorcerer full view body concept art, mage, fantasy, marvelous design, magic, partcile fx, spells, adorned in feathers and obsidian, blue, pink, white colors armor, Nekro, Hyper realistic, cloths, similar to "Artstation Trends", cinematic lighting
 Scientist on the surface of the moon with a luminescent flask, trending in artstation
 a Valkyrie with black wings, on a battleground covered with bones, high details, fine art, hyper realistic, clear image, dark cinematic, octane render, unreal engine 5, photorealistic, photographed
-Steampunk sustainability
 The Anunnaki is creating humans, as cave painting
 Frodo baggins after having the ring for a long time
 modern architecture tower, vaporwave style, digital art, high detail
 sultry cosplay woman with cute red anime wolf ears, wearing a wearing a violet lace bra, visible belly button, sensuous facial expression + anime manga style, 8k, wide shot, establishing shot, urban fantasy, cinematic, super detailed, vfx, post processing, hyperdetailed, high resolution + artstation, by Charlie Bowater, looks like Gigi hadid, insanely detailed and intricate
-Nightmarish image of agony + Peter Paul Rubens + Horror Art + realistic + highly detailed
 sailing in creepy pink forest with ghosts,4k cinematic, hyperrealistic,portal,sea,boat between forest,huge trees,snakes,bugs,lantern in hand,crow skull face,blue light eyes
-sandman VS Batman
 Huge golden palace in ancient Greece, Athena dream palace, pink clouds, sapphire, ruby, crystal, rose garden, illustrations, dreamy, refined, super wide viewing angles, CG rendering, 3 d, machinery, the moon, the sky and the stars, the waterfall--hd
 4k, photorealistic, very detailed robot wearing knight armor, sunset
 a hyper realistic crab attacking a city while shooting lasers from his eyes
 Moses on beach. Seas divided in 2. Giant waves. Path down center. People running. Concept art. Cinematic
-celestial sunset
 wolf head skeleton made out of emeralds on a light blue galaxy background
 elf girl holding a sword in a magical forest
 when the night has come, and the sun is gone, and the moon is the only thing I see. No I won't be afraid, no I won't be afraid as long as you stand by me. Pho
 The birth of angels, anime, heaven
 A rose, a small bridge water, lush landscape, Majestic Castle in the Sea of clouds, magical atmosphere.
 anime version of nier automata b2 character
-cyberpunk poodle
-monster
 birdseye view of infinite line of dead people waiting to cross the river Styx
 Space dragon, nebulae, galaxy, very details, realistic, CGI Marvel, cosmic, epic, cinematic, epic light, insane detail, photorealistic, Beautiful
 beautiful young heroine with light flowing hair smiling, great wave of hokusai, oil painting, portrait, acryllic spill, intricate complexity, rule of thirds, in the style of Kazuki Tanahashi, Genzoman, face by Artgerm and WLOP, fantasy character concept, Artgerm, watermark, blurry,cropped, 8k
-colorful demonic full plate armor set, standing inside a cathedral with red and green lighting, detailed, cinematic view
 a young blonde woman in a leather jacket walking through fog in a big desolate city at night
-Nun with a plague mask
-cyberpunk drug deal snowcrash
 a fish man stalking the streets of Paris, looking for prey
 Helmut Newton beautifull young girl draped in silk, Sally mann , Jan Saudek
-Macao
 Superhero who manipulates sunlight called Daisy. Painting
-wolf avatar, ghibli style
 24mm, beautiful young female vampire godess with pretty face with freckles and tattoos, black + red hair while she is partly covered in vibrant native face painting, large well-defined eyelids, big astonished eyes, artstation, concept art, warm red light from behind, clean lines, cinematic shoot, character design, strong backlight, lensflares, bright and clean look, volumetric light and dramatic shadows, 8k + mixed in the style of loish, in the style of glenn arthur, prisma effect in camera lens, redish look, with the aesthetics from drawings from atarot cards ,vintage baroque style influced, very detailed illustration, ornates, smooth lines, native style dreamy fantasy look, symmetrical face, rule of thirds, cinematic
 skull cut open exploding into butterflies, gears, flowers, galaxies + dark atmosphere + painting
 A little girl with curly brown hair with a happy expression wearing a summer dress dancing with fireflies
 General sam as a turkey vulture with gold military uniform and gold chains
-what do real aliens look like?
-Silently lovers logo
 red flowers grow on the red twisted roots of a tree from darkness
-fidel castro as the overlord of hell
 kurveschreiber type composition, clean lineart, flat shading, deep colours, black and white risograph style, 8K,
-giant evil mickey attacking a city
 a frog riding a big wave with a surfboard
 Abandoned survivor’s colony in the haunted forest, magic realism
 a person walking through a winter forest, blue, hand drawn
@@ -2622,13 +1977,10 @@ art nouveau collage frame. 8k resolution, hyperdetailed, specular, octane render
 old ware hall at the train rails with big windows, lightbulbs hanging around, sunset, wide angle, cinematic, moody
 octopus riding bicycle central park
 pirate ship sailing on bright green water, overcast sky, gritty detail
-War Priestess wearing warpaint
 minion mike tyson, high render, 8d
 sol lewitt draws bridget riley seamless pattern on the surface of an alien world made out of meaty monstrous biomass 35mm panoramic photo, 3d concept render, environment modeling
 an owl playing an acoustic guitar on the eiffel tower,
-bathhouse from spirited away in hell
 crying girl at the bottom of the ocean surrounded by white shadows
-a square in turin
 hooded male dark elf rogue in coat with swords in his hands waiting in the dark alley
 A group of Moa run alongside Lake Tekapo. Epic Scale. Howard Pyle, Glen Keane, Frank Brangwyn, Hayao Miyazaki. Epic Scale.
 muscular astronaut, 8k render, hyper-realistic detailed, 3D max
@@ -2636,13 +1988,8 @@ wooden facade two stories with balconies, william turner style
 realistic render of iphone 14 pro max
 two beautiful blonde 21-year-old identical twins dressed in a white christening gowns and wearing a floral crowns, at the festival of the Wicker Man in a small Scottish village, photojournalism 1967, photorealism, very realistic, in the style of Midsommar, 50mm lens, Kodak 5219 film,
 huge workshop full of looms in a vast magical college
-lion occult, character design, symmetrical fullbody rendering, yoji shinkawa, craig mullins, Emil Melmoth, artstation, highly detailed, 4k post-processing, 8k resolution , 70mm lens, dominant pose, what the hell are you looking at, outdoors lighting, nature background, contempt, hate, vivid emotion, symmetric circular iris, subtle glitter makeup, detailed moisture, detailed droplets, detailed intricate hair strands, DSLR, ray tracing reflections, symmetrical face and body, gottfried helnwein and Irakli Nadar, eye reflections, focused, unreal engine 5, vfx, post processing, post production, single face +photorealistic pencil sketch + text, male, long neck, textured eyes, oblong iris, oval iris , ptosis, anisocoria, asymmetric pupils , realistic , atmosphere and fog , warm lighting , atmospheric perspective , octane-render, photo-real, CryEngine, V-ray, 8k, micro details , blue hues, mysterious noir alley between two 1920s brownstone buildings, magical garden, rose brambles, stone path, cloudy night sky, natural volumetric lighting, low angle looking upwards, by norman rockwell, detailed 8k render, 8k postprocessing , cult of Lilith + , add to character a many beautiful female face, blue eyes full of tears, black raven hair, cape, long coat, dark background + dof
 WORLD MONUMENTS COVERED IN TARP
-foodporn
-megalophobia
-aeron aether
 应龙, concept art, volumetric lighting, artstation
-ching ching
 witches wearing black silk and sating robes and hoods celebrating a magical ceremony late in the day
 oscillating migraine hallucination with absurd and surreal composition, halo,
 simple character portrait by michael deforge
@@ -2664,37 +2011,26 @@ overgrown ruins of a large futuristic city hyper realistic
 C-3PO addressing UN full assembly
 a purple sunset over a circuitboard field
 Ronald McDonald as EVA UNIT 01, in the style of Hideaki Anno, city setting
-Patrick star in a wasteland
 warm, wet, damp, dark, gloomy, place of sorrow, man emerging from darkness, in attack on Titan style
-the x-files by Edward hopper
-Purple Icicle
 stunning emo cosplay woman with cute anime mouse ears, wearing a wearing a cloak and bra, visible belly button, sensuous facial expression + anime manga style, 8k, wide shot, establishing shot, historical fantasy, cinematic, super detailed, vfx, post processing, hyperdetailed, high resolution + artstation, by Charlie Bowater, looks like Gigi hadid, insanely detailed and intricate
 black holes and singularities, photorealistic, photography, cinematic, 8k, octane render, insane detail, ray trace, golden ratio, watermarks
 a garden with only black flowers, black flowers, moody, beautiful and exquisite, high definition, oil on canvas, black gothic flowers
-blackboard
 Schemes of two pessants with yellow skin having a conversation in an medival tavern, 8k,
-lithopédion damso
-Purple Icicle sharp
 close up of beautiful woman, sunset, Polaroid, depth of field
 a mid sized gray pit bull with wings over a body of water and a colorful sky vivid realistic hyper realistic HD 4k focal point cinema photography—ar 16:9
 mirage ladders into the sea, depressive art, surreal
 dolphin swimming underwater in front of rocky cliff with streams of light coming through the waves, vibrant colors, hyper realistic, bright lighting
 Frenzy emotion cartoon character
 megalithic brutalist dystopian cyberpunk future city street. Massive structures. Dark ominous. Neon. Overcrowding. Rain. HD. Ultra-realistic. Cinematic. MetaHumans. Megascans.
-giant Buddha statue building abandoned animatronic robots monsters cyberpunk city native land god mechanic magician made of devil god idol, artstation, ghibli studio, pixar, kantai collection,Azure lane, dreamworks , gegege no kitar, disney, epic composition, unreal engine, intricate details, blizzard, photorealistic, 4k
 lonely girl with strangers picnic on second floor of a Mexican charcoal villa, cinematic
 a fat bear in a space suit holding a shotgun without helmet, fighting hoard of humans, in dark city, detailed, photorealistic
-loft house in the woods
-beautifull gradients
 oil in water with glitter, organic shapes, chaotic, soap, mild, macro
 Pixar style chibi red car with cartoony eyes, colorful
 zoomed out three quarter view of Mitsubishi Lancer Evolution X, CMYK inspired livery, parking lot, photography, realistic
 people playing a boardgame about the climate crisis
 apocalyptic last selfie ever taken
 end of the world, apocalipse, concept art, cinematic, 8k,
-Dream of the endless
 Gothic Greek city, Arctic evergreen jungle, farms, river, waterfalls, hills, fantasy art
-Lolspice logo
 a queen with pale pink hair, flowers in her hair
 Quake3 game character made out of lego 4k
 hunter schafer as a cute young manga character made by studio ghibli
@@ -2704,7 +2040,6 @@ bird wings falcon fly sky moving
 the character "Stitch" from the movie lilo&amp;stitch with a very muscular human body
 badass girl with cigar in her mouth and hair like bubbles from power puff girls, purple, cyberpunk, 4k render, photorealistic, hyperdetailed
 a watercolour painting of a red horse on a green futuristic car with fire around, photorealistic
-soviet propaganda poster
 female mage, wearing adventurer cloth, who generate magical portal of teleportation by his hand, 120mm
 **insane gothic megacity, 2b,night panorama,rain,4k,cosmic giants, insane details, rendered in octane, bird view** - &lt;@324465833642557451&gt;
 Italian square, sunrise, side view, people, angels, baroque style, realistic, ultra detailed architecture, 3d render, rendered in maya, dreamlike, ZBrush, cinematic, atmospheric, unreal engine
@@ -2714,22 +2049,14 @@ orange octopus character in the style of Japanese childrens tv
 vinyl sculpture of a white flame angel,
 wounded dwarf digging through rubble in fallen city
 vast desert, cloudy sky, girl standing there,
-beer on moon
 an epic scifi blue water landscape with mysterious alien flora, alien plants, realistic, photo, photorealistic, hyperrealism, ultra, 4k, 8k, beautiful, view
-a Celtic warrior princess
-Chopin
-artistic crack
-toad dressed as garden gnome
 ultrarealistic, first human space colony
 cyberpunk hyperrealistic Daenerys Targaryen with a robot dragon
 middle aged man with mutton chops
 syntwave style with only 3 primary color : A big cyberpunk city, with a lot buildings and ship flying everywhere
-social warriors
-droog bathroom interior
 bombastic golden female warrior with lightning powers
 realistic film still of interior of a church filled with cannabis plants, hazy, epic lighting, cinematic composition, rule of thirds
 penguin with a golden wings, Basquiat style
-code monkey
 cockroach human hybrid bare-skinned exposed helpless in-the-raw stark
 colorful abstract liquid paint gradient map photoshop cinema4d blender octane render iridescent holographic psychedelic pour paint fluid stars vignette space 4K oil spill top view sparkle rainbow trippy ink macro
 Budapest, golden autumn, golden foliage, sunlight
@@ -2743,13 +2070,10 @@ background of a throne hall for a side scroller video game, 16 bit, pixel art
 a man sat in an armchair watching an old televsion in a field. Bleak
 endless liminal claymation spaces with abstract stained glass by matisse and Jules Lavirotte, with shadows, round rampant arches, high octane render
 geometrical calculus in the form of a female full figure study
-half way to eternity
-acrylic, neon
 vintage picture of a group of creepy faceless women sitting in a garden
 giant multi leveled cyberpunk city underground, surrounded by giant stone pillars
 crystal cave underwater glowing massive crustaceans cave moody cinematic concept art
 a monochrome scan texture photograph of a girl bitting a dangerous dog on a fight
-my eye is a forest glade
 harvesting a clove tree in a magical bottle, photo realistic, fantasy
 beautiful pancakes covered in thick golden syrup, close up, moist, steam, fresh, glaze, amazing
 big infinite book in the sky, realistic
@@ -2757,21 +2081,13 @@ painting a Man in Silver, Gustav Klimt style
 woman happy in bed by a tentacle monster
 gorgeous young black woman posing lying down on a couch, naive smile, mystical, magical aesthetics, gorgeous, alluring illustration Hayao Miyazaki style
 archeofuturistic viking high tech colony in the forest
-Matte red paper
 giant insects taking over a formal dining room, futuristic; dynamic lighting, cyberpunk, realistic, post-processing
-istanbul by ivan shishin
 gothic dada future quantum richter
 woman painted by nathan fawkes, charcoal
-AM logo
-marimekko kitchen interior
-Alec’s worst nightmare
-sunset at a magical kingdom
 A large jewel, intricate silver ornaments, sapphire, high fantasy, gothic
 realistic creepy alien in 4k sharped in dark background
 Ronald Mcdonald, Magic: the Gathering card
 rose quartz, etheric, fish scales, fly fish, galaxy, feathers, octane render, high detail, sacred geometry, golden light, consciousness, wet cloth, fish fins, goddess, celestial, galaxy, fish scales, glass, eyes, abstract, 8k hyperrealism, hyperrealistic, unreal engine render, highly detailed
-David cassidy
-photograph of blue eye, depth
 3D render, photorealistic, android angel, metallic feathers on razor sharp wings, white ceramic skin, blue veins on arms, landing from above
 a symmetrical trowel in front of a white background, tool, extractivism, photorealistic, unreal engine
 warhammer miniature: a knight holding a sword. unpainted
@@ -2784,12 +2100,9 @@ Keanu Reeves as Frodo Baggins in Lord of the rings
 a magic harry Potter shop, inspired by an acid trip. Psychedelics, hallucinogens, inspired by professor Dumbledore, trending on artstation, art, ultra quality, hyperrealistic, details, realistic texture, render 8k
 highway that ends in a beachfront coastline
 a professional mountain climber, but instead of a mountain, he is climbing the stairs. Realistic, 8k, octane render, real life, volumetric lighting, indoor, trending on artstation
-a dragon god
 a modern victorian castle, concrete builing, modern palace house, large scale castle, north europe, botanical as decoration, photorealistic, octane render, volumetric lighting, high detail
-blackhole, space
 Generative fashion sprouting from earth’s soils, botanical drawings
 Knight in Gold and White Armour Adorned with Jewels and Ripped Cloth standing Center Screen on top of a rock, People surrounding knight looking up at them, Rain, Lightning, Light from Above, ArtStation, Photobash, Matte Painting, Ismail Inceoglu, and CloverWorks
-Icecream starship battle
 portrait of a decomposed mummy wearing a necklace with intricate magical engravings, dappled lighting, cinematic, photographic, realistic, highly detailed, matte painting in the style of Gustave Dore, John Singer Sargent, artstation
 logan paul as the president of the united states, portrait, realistic, white house is behind him in the background, full body, 8k, high resolution, detailed,
 black bat creatures climbing a sequoia-like tree in a dense jungle in style of ralph mcquarrie
@@ -2801,36 +2114,25 @@ a redhaired girl in a blue dress standing alone in a garden holding a golden mag
 cyberpunk cafe racer motorcycle
 How many fingers am I holding up?
 electronic music festival in the metaverse
-a robotic woman painter
 a hop cone cut in half with the insides of a pulpy pineapple, photorealistic, still life, studio lighting
 Futuristic latinamerican cities, highly technological developed harmoniously with nature by eddie mendoza, trending on artstation.
 cyberpunk girl witha bandana and a samurai sword, smoke, neon red, neon blue, cyberdeck on her arm
-futuristic magic police fighting a shadow sleep paralysis demon inside the dreamscape, colorful, intense
 skeleton of a dog running happily in a cemetery, artstation, intricate detail, fantasy
-steel building faculty library
-portrait of pain
-horror
 the scariest thing you've ever seen in your room at night
 cross stitch elven sigil, simple, drawn on graph paper
 ethiopian demera celebration people dancing jumping fire
 xenomorph hunting a fleeing human soldier in alien temple, photorealistic
-winged paladin with spear
 rejected dark souls boss, cobwebs
 cyberpunk street by albrecht dürer
 Dresden city drawn by hieronymus bosch
 steampunk bathroom, robot, realistic
-neon modern oil painting style beautiful tropical florida hellscape scene with dreamy beautiful dancing clown women and skeleton flamingos in the distance, beach pavilion citrus groves palm trees swamp background
 a single standing stone over the clouds, misty, atmospheric, volumetric lighting, cinematic, in style of romantic era paintings
-eldritch temple in a cave
 Macon GA 1890, David Hunter Strother
 Village on the clouds with moody lighing, cinematic shot, ultrarealistic, high quality, dreamlike, unreal,
 a red dragonborn with a grin, with a lute, in red clothes with a crimson cape, in a dynamic pose
-saturn crashing into the moon
 giant ankh, vaporwave, unreal engine
 future starcraft building race with carnivorous exotic round towers and spaceship hanger with organic shapes
 portrait of an alien with Kodak Professional Porta 400 film stock, shot by Annie Leibovitz
-, woman who uses nunchaku
-vaporwave city van gogh
 cute, night, sparkle, party, pokemons
 city, punk, cyberpunk, dark, bitcoin, symmetry, skyscrapers, neon lights
 portrait of X-Com soldiers inside underwater crashed UFO, designed by Jack Kirby, illustrated by John Berkey, Ralph McQuarrie, Bob Peak, Drew Struzan, Robert McGinnis, Greg and Tim Hildebrandt, Kazuhiko Sano, Ashley Wood, Tom Jung, Bill Sienkiewicz, yoji shinkawa, Bob eggleton, ethereal, ultra detailed, textural
@@ -2849,23 +2151,14 @@ Naruto mask made out of shiny polished metal
 cute zoomed in girl from a movie, with purple hair, face looking into the camera, symmetrical eyes
 vintage film grain night floating market with bokeh in the background, tilt shift photography makes it look miniature, vivid colors, lots of food on the boats
 five nights at freddy's, animatronics, 4k, afton, springtrap, 4k, 1920x1080
-Bloodborne like hunter, scientist, draped in vials with red liquid and samplers, character design, horror
-everywhere at the end of time
-triceratops ontogeny
-anime drowning
-cyberpunk weimar republic
 a Game of thrones battle of bastar with dragon and fire and many smoke - ar 16:9
 electric flash from silhouette of virus cell, wide angle,intricate, super detailed, 8k, octane render, by H.R. Giger
 a minion in the style of Magritte’s The Son of Man
 black and white photo film Peter Lindberg style
-eclectic musical intro
 james jean fables comic cover of mermaid and garbage, adventure, beautiful lighting, god rays, action, night, 8k, painted by magic the gathering, trending on artstation
-Albert Camus
 vast alternate landscape, utopian future, nature, ultra realistic photographic
-fire extinguisher sign
 exploration rover, six wheels with black tires, big gun at the center, electronic wires, white paint, martian ground, atompunk style
 dark atmosphere, beach at night, full moon, volumetric lighting, foggy, unreal engine, octane render
 six-year-old girl, messy blonde hair pulled back, gray tee shirt, holding an armful of green and pink apples, symmetry, detailed, photo realistic--ar 5:7--s 2500--q 1
 red haired girl with green hair, standing on water, jacht in background, starry night, fox spirit
-gorgeous futuristic goddess
 Paris , a wes anderson style, painted by ghibli studio hot tones , melancholic and impressive atmosphere, hyper realistic , extremely high details, 8k ar 2:1
