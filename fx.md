@@ -1,4 +1,4 @@
-radian
+radiant
 glowing
 glossy
 sparkles
