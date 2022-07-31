@@ -48,7 +48,6 @@ Meerkat
 Mongoose
 Monkey
 Mouse
-Naked mole-rat
 Otter
 Pig
 Platypus
