@@ -75,7 +75,6 @@ Turtle
 Water buffalo
 Water deer
 Weasel
-Whale
 Wildebeest
 Wolf
 Wolverine
