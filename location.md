@@ -5,7 +5,6 @@ The Amazon Rainforest, South America
 The Matterhorn, Switzerland
 The African Savannah, Africa
 The Sahara Desert, Africa
-The Northern Lights, Scandinavia
 The Great Plains, USA
 Yosemite Valley, California, USA
 Mount Everest, Nepal/China
