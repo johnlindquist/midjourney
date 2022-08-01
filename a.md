@@ -64,7 +64,6 @@ Brocore
 Bronzepunk
 Bubble Bujo
 Bubble Goth
-Bubblegum Bitch
 Bubblegum Witch
 Cabincore
 Cagole
