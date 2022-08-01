@@ -11,7 +11,6 @@ Agropeople
 Alien
 Alternative
 Americana
-Analog Horror
 American Pioneers
 American Revolution
 Ancient Egypt
