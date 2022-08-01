@@ -17,3 +17,30 @@ The Okavango Delta, Botswana
 The Atacama Desert, Chile
 The Iguazu Falls, Argentina/Brazil
 The Victoria Falls, Zambia/Zimbabwe
+The Bahamas
+Hawaii
+Cancun, Mexico
+Puerto Vallarta, Mexico
+Los Angeles, California
+Orlando, Florida
+New York City, New York
+Las Vegas, Nevada
+San Francisco, California
+Miami, Florida
+Riviera Maya, Mexico
+Cozumel, Mexico
+Paris, France
+London, England
+Barcelona, Spain
+Rome, Italy
+Madrid, Spain
+Dubai, United Arab Emirates
+Ibiza, Spain
+Mykonos, Greece
+Santorini, Greece
+Bora Bora, French Polynesia
+Maui, Hawaii
+The Maldives
+Thailand
+Australia
+New Zealand
