@@ -109,7 +109,6 @@ Corporate
 Corporate Memphis
 Corporate Punk
 Cottagecore
-Cottagegore
 Coquette
 Country
 C-Pop
@@ -155,7 +154,6 @@ Decora
 Delicate Sweet
 Desertwave
 Dethereal
-Devilcore
 Dieselpunk
 Diner
 Dionysism
@@ -205,8 +203,6 @@ Gamercore
 Gamine
 Geek
 Gen X Soft Club
-Ghostcore
-Girl-Next-Door
 Glam Girl
 Glam Rock
 Glitchcore
@@ -282,7 +278,6 @@ Liminal Space
 Lit Kid
 Lo-Fi
 Lobotomy-Chic
-Lolita
 Lounge
 Lovecore
 Lunarpunk
@@ -372,7 +367,6 @@ Pixel Cutie
 Pixiecore
 Plaguecore
 Plant Mom
-Playboy
 Pop
 Pop Art
 Pop Kei
