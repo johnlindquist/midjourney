@@ -89,7 +89,6 @@ Christian Girl Autumn
 Christmas
 City Pop
 Classic Academia
-Classic Lolita
 Classicism
 Cleancore
 Clockpunk
@@ -218,7 +217,6 @@ Gorpcore
 Goth
 Gothcore
 Gothic
-Gothic Lolita
 Grandmillenial
 Grandparentcore
 Greaser
@@ -248,7 +246,6 @@ Hexatron
 Hi-NRG
 High School Dream
 Hikecore
-Hime Lolita
 Hip-Hop
 Hippie
 Hipster
