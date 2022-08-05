@@ -321,7 +321,6 @@ Mythpunk
 Nanopunk
 Naturecore
 Nautical
-Nazi Chic
 Neko
 Neo-Romanism
 Neo-Tokyo
